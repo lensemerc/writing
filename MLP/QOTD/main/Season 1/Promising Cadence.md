@@ -35,8 +35,8 @@ Plotting for everyone an odd cruel end
 SO
 
 When the Moon rises high, and the Mare casts a glare,
-If smart ponies hears her, they remain in a bed,
-Or she'd steal them away into her shabby, dark shed.
+If smart ponies hear her, they remain in a bed,
+Or she'd steal them away in her shabby, dark shed.
 Just as 
 she took 
 a lock of the hair,
@@ -126,9 +126,9 @@ It hitted harder than any blow. Her father spoke just like that, with exactly sa
 
 Prismia jerked head up, stared with a bewildered glare. She mustered just enough dignity to not let self-pity take control of her mental faculties, and scrambled up to her hooves. Enough of this.
 
-"I..." she tried to speak, and then shook her head, clenched her teeth. *Enough* of this.
+"I..." she tried to speak, and then shook her head, clenched her teeth. [i]Enough[/i] of this.
 
-*Enough of this.*
+[i]Enough of this.[/i]
 
 Like in a daze, she turned in a haze, a rat in a maze filled with wrong choices... Facing the hut, she gripped tightly the woodcutters axe left lying at her hooves, then lunged forward, climbed the small ladder at the side of the building. There was the nexus of the machine, its soul, while most of the ugly body was concealed down below. Years of hard labor went into this thing. Priceless gemstones were laid in the foundation of the project, being hidden away in the houses of ponies to serve as amplifiers of their natural-born love. Dragon scales adorned the device, as well as exact replica of medallion on her chest, exquisite and unique, now heavy as lead... Prismia adored the machine, the culmination of her life's work.
 
@@ -192,7 +192,7 @@ She cried even harder from that.
 The alicorn filly giggled tenderly: "I shall not break your heart. I am not a pony who breaks hearts. I am a pony who mend them~..."
 
 
-
+[END]
 
 
 "It isn't my real family. 
