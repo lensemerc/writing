@@ -66,9 +66,153 @@
                 "source": false
               }
             }
+          },
+          {
+            "id": "c350d7c5ec60e7b8",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "MLP/QOTD/addendum/notes/Season 2/CotD - 2.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "3f1e2d2be3181ea8",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "MLP/QOTD/addendum/notes/general.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "af337bbf258956ac",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "MLP/QOTD/addendum/notes/ideas-plots.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "16a801bcddc7f6e9",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "MLP/QOTD/addendum/notes/general.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "7b417ff393d1d8f1",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Untitled.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "e9665ad411d7e029",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "MLP/QOTD/main/Season 1/plan.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "4505a310ca6252b3",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "MLP/QOTD/main/Season 2/plan.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "c423f1e61a8192c3",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "MLP/QOTD/main/Season 3/plan.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "1f7ec2e21165ff7b",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "MLP/QOTD/main/Season 2/plan.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "c5cb88c55bf5d849",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "MLP/QOTD/addendum/chars/rainbow dash.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "44207b8d412ab367",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "MLP/QOTD/addendum/chars/rainbow dash.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "51ca68d5ad44563b",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "MLP/QOTD/main/Season 1/Promising Cadence.md",
+                "mode": "source",
+                "source": false
+              }
+            }
           }
         ],
-        "currentTab": 4
+        "currentTab": 16
       }
     ],
     "direction": "vertical"
@@ -196,24 +340,38 @@
       "obsidian-textgenerator-plugin:Text Generator: Templates Packages Manager": false
     }
   },
-  "active": "d8aefadc2ddb5224",
+  "active": "51ca68d5ad44563b",
   "lastOpenFiles": [
-    "MLP/QOTD/addendum/theater of war/equestria/Everfree Forest.md",
-    "MLP/QOTD/main/Season 1/Warmth of the Stars.md",
+    "MLP/QOTD/main/Season 3/plan.md",
+    "MLP/QOTD/addendum/chars/sunset.md",
+    "MLP/QOTD/addendum/notes/general.md",
+    "MLP/QOTD/addendum/chars/rainbow dash.md",
+    "MLP/QOTD/main/Season 1/plan.md",
+    "MLP/QOTD/main/Season 2/plan.md",
+    "MLP/QOTD/addendum/chars/rarity.md",
+    "MLP/QOTD/addendum/notes/Season 1",
+    "MLP/QOTD/addendum/notes/Season 2",
     "MLP/QOTD/main/Season 1/Promising Cadence.md",
-    "MLP/QOTD/addendum/theater of war/equestria/Canterlot (Capital).md",
+    "MLP/QOTD/main/Season 1/Warmth of the Stars.md",
+    "MLP/QOTD/main/Season 4/plan.md",
+    "MLP/QOTD/main/Season 4",
+    "MLP/QOTD/main/Season 3",
+    "MLP/QOTD/main/Season 2",
+    "Untitled.md",
+    "regarding writing.md",
     "README.md",
+    "MLP/QOTD/addendum/notes/ideas-plots.md",
+    "MLP/QOTD/addendum/notes/Season 2/CotD - 2.md",
+    "Pasted image 20230715184948.png.md",
+    "Pasted image 20230715184948.png",
+    "MLP/QOTD/addendum/theater of war/equestria/Everfree Forest.md",
+    "MLP/QOTD/addendum/theater of war/equestria/Canterlot (Capital).md",
+    "MLP/QOTD/addendum/surplus.md",
     "MLP/QOTD/addendum/races",
     "MLP/QOTD/addendum/theater of war/crystal empire",
     "MLP/QOTD/addendum/theater of war/dragon lands",
     "MLP/QOTD/addendum/theater of war/equestria",
     "MLP/QOTD/addendum/theater of war",
-    "MLP/QOTD/addendum/surplus.md",
-    "Hello world.md",
-    "MLP/QOTD/addendum/notes",
-    "MLP/QOTD/addendum/old",
-    "MLP/QOTD/addendum/chars",
-    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1",
-    "MLP/QOTD/main/Season 1/Новая папка"
+    "Hello world.md"
   ]
 }

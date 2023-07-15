@@ -1,8 +1,16 @@
 - Creatures of the Dark - Part 1
 
 
-+++ Royal Palace
-++ Royal Bathhouse
+--- Royal Palace
 
-+++ School for Gifted Unicorns
+-- Royal Bathhouse
+
+
+
+
+--- School for Gifted Unicorns
+
+
+--- Canterlot Undercity
+
 
