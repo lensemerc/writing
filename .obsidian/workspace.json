@@ -13,13 +13,38 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "README.md",
+                "file": "MLP/QOTD/main/Season 1/Warmth of the Stars.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "f19126e79414928b",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "MLP/QOTD/main/Season 1/Promising Cadence.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "5832249e7d2c181d",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "MLP/QOTD/main/Season 1/Promising Cadence.md",
                 "mode": "source",
                 "source": false
               }
             }
           }
-        ]
+        ],
+        "currentTab": 2
       }
     ],
     "direction": "vertical"
@@ -85,7 +110,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "README.md",
+                "file": "MLP/QOTD/main/Season 1/Promising Cadence.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -102,7 +127,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "README.md",
+                "file": "MLP/QOTD/main/Season 1/Promising Cadence.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -125,7 +150,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "README.md"
+                "file": "MLP/QOTD/main/Season 1/Promising Cadence.md"
               }
             }
           }
@@ -147,11 +172,17 @@
       "obsidian-textgenerator-plugin:Text Generator: Templates Packages Manager": false
     }
   },
-  "active": "666df7effacd2312",
+  "active": "5832249e7d2c181d",
   "lastOpenFiles": [
     "MLP/QOTD/main/Season 1/Warmth of the Stars.md",
+    "MLP/QOTD/main/Season 1/Promising Cadence.md",
+    "MLP/QOTD/addendum/surplus.md",
+    "Hello world.md",
+    "MLP/QOTD/addendum/notes",
+    "MLP/QOTD/addendum/old",
+    "MLP/QOTD/addendum/chars",
+    "README.md",
     "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1",
-    "MLP/QOTD/main/Season 1/Новая папка",
-    "Hello world.md"
+    "MLP/QOTD/main/Season 1/Новая папка"
   ]
 }
