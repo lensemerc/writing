@@ -13,7 +13,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "MLP/QOTD/main/Season 1/Warmth of the Stars.md",
+                "file": "README.md",
                 "mode": "source",
                 "source": false
               }
@@ -85,7 +85,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "MLP/QOTD/main/Season 1/Warmth of the Stars.md",
+                "file": "README.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -102,7 +102,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "MLP/QOTD/main/Season 1/Warmth of the Stars.md",
+                "file": "README.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -125,7 +125,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "MLP/QOTD/main/Season 1/Warmth of the Stars.md"
+                "file": "README.md"
               }
             }
           }
@@ -149,9 +149,9 @@
   },
   "active": "666df7effacd2312",
   "lastOpenFiles": [
+    "MLP/QOTD/main/Season 1/Warmth of the Stars.md",
     "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1",
     "MLP/QOTD/main/Season 1/Новая папка",
-    "Hello world.md",
-    "MLP/QOTD/main/Season 1/Warmth of the Stars.md"
+    "Hello world.md"
   ]
 }
