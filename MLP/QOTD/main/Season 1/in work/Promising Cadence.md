@@ -29,8 +29,8 @@ Lingering, lumbering,
 Seething and slandering,
 Preying and prying, 
 Creepily crawling,
-Hacking and hewing away in her shed
-Plotting for everyone an odd cruel end
+Hacking and hewing away in her shed,
+Plotting for everyone an odd cruel end.
 
 SO
 
@@ -46,24 +46,27 @@ a small stuffed toy,
 a shriveled dark rose,
 a rusted lucky horseshoe,
 even a slice of raspberry pie! She's like a magpie!
-That's what puts in her greasy, torn bag
-                              that sleazy old hag!
+That's what she puts in her greasy, torn bag
+				                             sleazy old hag!
 
 But one little girl                                                                 
 Bright-eyed little girl                                                         
-                                     didn't knew what she'd wrought.
+            didn't knew what she had wrought.
 Foreign castaway, her kindness she sought.
 "What are you, mad?" spoke all in Hoovesville,
 "Stay away from the old hag!"
 "The hag don't really care (The hag can't really care)"
 "It'll be just unwise! (All good she'll despise)"
-"Act like we do, stay safe as thus (Don't dramatise...)"
+"Act just like we do, stay safe as thus (And I won't dramatise...)"
 "Your future's with us!                                                            
-                                       [sub]and our bittersweet white lies[/sub]"
+                                       [sub][i]and our white little lies~♫[/i][/sub]"
 
+One night 
 
-Clumsily and without any grace
-Took her in a heartfelt embrace
+woes
+
+Clumsily, without any possible grace,
+She took her into an eager embrace.
 
 "Can you hear-hear?
 Hear hear
@@ -71,48 +74,51 @@ Hear-hear
 How knock-knocking it into your chest?
 Like a silken touch
 As a gentle nudge
-Can you hear how calling out?
+Can you hear how it calling out?
 the Magic of Love?
 to your heart?"[/center]
-"NO!"
 
-With all feeble strength she could muster, Prismia brought her wrinkly hooves mercilessly on the little pegasus' head and struck the filly down. And immediately gasped, as a chilling sensation rose in her chest, drowning out last vestiges of doubt about one single and undisputable thing—she *is*, in fact, a *bad* pony. Everything that was ever said about her was true.
+[center]"NO!"[/center]
 
-But even now, despite being in the mud on the ground, this pathetic little pink thing kept looking at her without judgment. Struggling with sudden regret, Prismia shrinked away, her muzzle contorted in an unsightly grimace. She wanted to scream, to run, to tear her own hair, to throw away the medallion that worked as a conduit, but instead she just stood and shook like a leaf, keeping staring with widened eyes. 
+With all the feeble strength she could muster, Prismia brought her hooves mercilessly on the little pegasus' head, striking her down. And immediately, she gasped, as a chilling sensation rose in her chest, drowning out last vestiges of doubt about one single and undisputable thing—she [i]is[/i], without a doubt, a [i]bad[/i] pony. Everything that was ever said about her was true.
+
+But even now, despite being in the mud on the ground, this pathetic little pink thing kept looking at her without judgment. Under this look, Prismia shrank away, struggling with sudden regret, contorting muzzle in an unsightly grimace. She wanted to scream, to dash away, to tear out her own hair in frustration, to throw away the medallion that worked as a conduit, and being torn up by these wants, instead she just stood and shook like a leaf, keeping staring with widened eyes. 
 
 That damnable filly rose up, not caring for the bruise in the slightest. She remained soft-spoken: "I know why you are so sad and alone. I understand it now. You pushed everyone away, right?"
 
 "Y-you! How dare you!? What do you even know!?" Prismia bleated.
 
-"No, I understand it. I really-really am. I don't have anyone else too. I don't know where I came from. That family I'm with, t-they just f-found me in a forest, completely alone," the filly nervously smiled, stepping closer.
+"No, I understand it. I really-really am. I don't have anyone else too. I don't even know where I came from. That family I'm with, t-they just f-found me in a forest, completely alone," the filly nervously smiled, took a step closer.
+
+The enchantress recoiled from her like from a snake.
 
 "Get away from me! I'm warning you, stand back!" Her horn lighted up, but despite it all, she just couldn't force herself to call magic upon this stubborn, obnoxious child.
 
-The filly not listened. She, itty bitty thing, was forcing her to keep backing away, right where her machine was creaking and cracking on top of the hut, surging with power as it kept leeching love from the denizens of the city. The filly wasn't looking at it, her gaze never left Prismia. She kept talking, quietly, insistently: "They don't need me. The family that took me in have their own children, I have many sisters now, but they all just like it when I am around. They know I'm not like them, and they are afraid. They are afraid of you too because you're not like anyone else, right?"  
+The filly not listened. She, itty bitty thing, was forcing her to keep backing away, right where her machine was creaking and cracking on top of the hut, surging with power as it kept leeching love from the denizens of the city. The filly wasn't looking at it, her gaze never left Prismia. She kept talking, quietly, insistently: "The family that took me in have their own children, I have many sisters now. They don't need me, you know. They kind of just enjoy it when I am around, I know what they talk behind my back... I'm not like them. They are afraid of you too because you're not like others, right?"  
 
-"
+Prismia stiffened. "[i]What is she, spewing her guts now?[/i]". This strange eagerness to talk was just as abhorrent as unashamed sincerity, which the enchantress couldn't deny, even if she could hardly believe what she heard.
 
-"It is never too late to open your heart again," she whispered, "It is not your past that keeps it closed, only you."
+The girl got very close. "It is never too late to open your heart again," she whispered, "It is not your past that keeps it closed, only you."
 
-"*What's with that kid...*" Prismia сlosed his eyes and sucked a deep breath through her teeth. She needed to calm down... 
+"[i]What's with that kid?...[/i]" Prismia sucked a deep breath through her teeth. She needed to calm down... 
 
-"You need me much more than anyone else." The filly placed her little hoof on her own. The warm, incredible sensation from the touch oddly reminded Prismia of her mother, made her remember the time when she was a child.
+"You need me much more than anyone else." The filly placed her little hoof on Prismia's own. The warm, incredible sensation from the touch oddly reminded Prismia of her mother, made her remember the time when she was a child herself.
 
-Why did she never had kids of her own? No one ever looked at her like this filly, because she... she decided to... 
+Why did she never had kids of her own? No one ever looked at her like this filly, because she... that's right she decided to... 
 
-Prismia realised that she is slipping. She couldn't stop an avalanche of emotions that was stirring up within her. Was it overabundance of excessive love magic at fault, or the fact that her own senses were sharpened, but her heart panged with the dull old pain nonetheless, of the kind with which old wounds open up, those that never healed proper before.
+Prismia realised that she is slipping. She couldn't stop an avalanche of emotions that was stirring up within her. Was it overabundance of excessive love magic at fault, or the fact that her own senses were sharpened as a side-effect of ongoing manipulation of essence, but nonetheless, her heart panged with the dull old pain with which old wounds open up, of the kind that never healed proper before.
 
-She remembered vividly how she thought that she was *special*, and how the world decisively had shown her that she never was. All her bitterness, all her plans, projects and research that were never needed, never *required*...
+She remembered vividly how she thought that she was [i]special[/i], and how the world decisively had shown her that she never was. All her bitterness, all her plans, projects and research that were never needed, never [i]required[/i]...
 
 This filly was old enough to be her daughter... No, she realised, as she remembered her own age. She could've been her *grand*daugther just as well... When she became so old and bitter?
 
-Girl smiled and stayed close despite Prismia's unwashed body and rugged clothes, despite the chugging infernal machine, saturated with green energy. She was only one of all these ingrates and imbeciles in the town, who wasn't afraid of her. Her innocent eyes were soul-churning, burning Prismia harsher than any brand, as if drilling itself into her memories.
+Girl smiled and stayed close despite Prismia's unwashed body and rugged clothes, despite the chugging infernal machine, saturated with pinkish green energy. She was only one among all those ingrates and imbeciles in the town, who shown her some tolerance. Her innocent eyes were soul-churning, burning Prismia harsher than any brand, as if drilling it into her memories.
 
 And she couldn't look away.
 
 "You are just some nameless useless orphan!" She whined on top of her lungs. It was all kinds of disgraceful. 
 
-The girl nodded solemnly, "Yes. And it is alright." She smiled, and Prismia's heart pushed into her throat, "If my purpose to be here and help you, then I don't mind it at all."
+The girl nodded solemnly, "Yes. And it is alright." She smiled bittersweetly, and Prismia's heart pushed into her throat, "If my purpose to be here and help you, then I don't mind it at all."
 
 "I d-dont need y-you... I don't need..." She was the great enchantress, a sorceress, an artificer, an inventor... How did she let herself become so weak?
 
@@ -120,7 +126,7 @@ The girl nodded solemnly, "Yes. And it is alright." She smiled, and Prismia's he
 
 It hitted harder than any blow. Her father spoke just like that, with exactly same words. Prismia whinnied, fell onto her knees, clenched her temples with hooves. Long ago, she wanted to make him so proud of her, before the life in Canterlot became too demanding and she ceased speaking to her low-born family... It is all this vile love magic... She lost control over it, there could be no other explanation. Why she feels so *wrong*?
 
-"I'm not worth of anything..." she groaned, as more memories begun submerging from the furthest outreaches of mind. All guilt and pain, mostly self-inflicted, everything that could've been avoided...
+"I'm not worth anything..." she groaned, as more memories began submerging from the furthest outreaches of mind. All guilt and pain, mostly self-inflicted, everything that could've been avoided...
 
 "No, no..." the words were spilling out of the filly's mouth like a little waterfall of love, "You are the entire world."
 
@@ -130,23 +136,23 @@ Prismia jerked head up, stared with a bewildered glare. She mustered just enough
 
 [i]Enough of this.[/i]
 
-Like in a daze, she turned in a haze, a rat in a maze filled with wrong choices... Facing the hut, she gripped tightly the woodcutters axe left lying at her hooves, then lunged forward, climbed the small ladder at the side of the building. There was the nexus of the machine, its soul, while most of the ugly body was concealed down below. Years of hard labor went into this thing. Priceless gemstones were laid in the foundation of the project, being hidden away in the houses of ponies to serve as amplifiers of their natural-born love. Dragon scales adorned the device, as well as exact replica of medallion on her chest, exquisite and unique, now heavy as lead... Prismia adored the machine, the culmination of her life's work.
+Like in a daze, she turned in a haze, a rat in a maze filled with wrong choices... Facing the hut, she gripped tightly the woodcutters axe left lying on the grass, then lunged forward, climbed the small ladder at the side of the building. There was placed the nexus of the machine, its soul, while most of the ugly body was concealed down below. Years of hard labor went into this thing. Priceless gemstones were laid in the foundation of the project, being hidden away in the houses of ponies to serve as absorbers and conductors of their natural-born love. Dragon scales adorned the device, as well as exact replica of the medallion on her chest, exquisite and unique, now heavy as lead... Prismia adored the machine, the culmination of her life's work.
 
 "*What am I doing?*"
 
-Her eyes went over the darkened town, and she noticed for the first time how the trees and grass near the hut became dull grey-brownish color, as if her laputan device was draining something from the air and ground itself. Tears streamed down her muzzle. If it will continue like that, many innocent ponies will just wither away, not even understanding in their ignorance what is happening, until it will be too late. And all because she was experimenting and scrying, trying to decipher what lies behind the emotion, or rather the *power*, of love...
+Her eyes went over the darkened town, and she noticed for the first time how the trees and grass near the hut became dull grey-brownish color, as if her laputan device was draining something from the air and ground itself. Tears streamed down her muzzle. If it will continue like that, many innocent ponies will just wither away, not even understanding in their ignorance what is happening, until it will be too late. And all because she was experimenting and guessing, trying to decipher what lies behind the emotion, or rather the *power*, of love...
 
 "*What have I done?*"
 
-The filly was still nearby, as she flew on the rooftop after Prismia. The enchantress weighted the axe in her hooves, unsure.
+The filly was still nearby, as she flew on the rooftop after Prismia. The enchantress weighted the axe in her wrinkly hooves, now unsure.
 
 "You have to go. Run off to your family. It isn't safe," she croaked in harsh, abrupt sentences.
 
-"I'm staying," she simply responded.
+"I'm staying," the filly simply responded.
 
 "You don't get it. I don't know what will happen if I... when I... The extrusion effect, the energy..."
 
-Tiny filly placed a hoof on her own, and again, there was this warm tingling sensation... A hot pie, just baked and fresh from the oven. Father's smile. A sunlight-filled field. A sudden letter, received from dear friend on the other side of the country. Simple words: "I miss you*"... A walk through the park when she was still young, while wearing a beautiful summer dress. Hours on end that she spent with her friends, just fooling and playing around. She remembered so vividly that other life, when the world was filled with fillies like this one, when she herself was just like her, long before she wanted to be feared, and revered, and cherished, swayed by all the visions of grandeur, met by all the burdens and heartbreak...
+Tiny filly placed a hoof on her own, and again, there was this warm tingling sensation... Illusory images went through her mind, a breath of a wind from days long past. It brought the smell of a hot pie, fresh from the oven. Father's smile. A sunlight-filled field. A sudden letter, received from dear friend on the other side of the country. Simple words: "I miss you"... A walk through the park when she was still young, while wearing a beautiful summer dress. Hours on end that she spent with her friends, just fooling and playing around. She remembered so vividly that other life, when the world was filled with fillies like this one, when she herself was just like her, long before she wanted to be feared, and revered, and cherished, swayed by all the visions of grandeur, and met by all the burdens and heartbreak...
 
 Prismia smiled painfully. "You won't leave me..."
 
@@ -158,9 +164,9 @@ They brought the axe down right on the heart of the machine, the blade sank deep
 
 --
 
-Tall, angelic, radiant figure with giant wings, each one as dozen little fillies like her... She was like an art come alive, painted in canvas of twinking stars...
+Tall, angelic, radiant figure with giant wings, each one as dozen little fillies like her... She was like an art come alive, painted in canvas of twinkilng stars... With bated breath and weak knees, the filly leaned into a deepest bow, not daring even to look.
 
-Voice called out to her, precious, pure and soothing, flowing like a water of mountain spring: "Congratulations, Princess Mi Amore Cadenza! Great deeds are expected of you."
+[i]She[/i] was so warm and precious... "Ah, here you are, MI Amore Cadenza!" her voice flown like a water of a mountain spring, pure, soothing, and chipper: "Hitherto, but one alicorn watched over this world, and now it'll be two. You may stand, and be proud, young Princess. Many great deeds are expected from you..."
 
 --
 
@@ -170,12 +176,22 @@ The girl dissapeared, or maybe she never existed at all. It mattered little. Pri
 Prismia hacked until her hooves were on verge of giving out.
 Like a wingless angel of death разрушает свою избу
 
+
+
  Prismia was like a beast, destroying all her life's wok
 Filly was gone. Was she even real? Prismia wasn't sure. It mattered little.
 
 жители деревни понемногу выходят и смотрят на Призмию
 
-"Look at what you've done to me!" she howled desperately, wishing fervently for it all to be finished already.
+
+  How could she ever hope to grasp something so elusive?
+  
+  exquisite abstractions, embroidered with richness of mathematics of emotion
+
+what is wrong with her? She laughed bitterly over her own demise and downfall. She is nothing more but her own executioner...
+She laughed and laughed still, as her shoulders sagged and she pressed down on the ground.  That is how ponies found her. They were carrying pitchforks and lanterns. She welcomed the sight.
+
+"Look at what you've done to me!" she howled desperately, fervently wishing for it all to be ended already.
 
 
 "Why do you cry?"
@@ -189,7 +205,7 @@ She cried even harder from that.
 
 "Don't you dare break my heart," she whimpered, pressing muzzle against multicolored mane of hers.
 
-The alicorn filly giggled tenderly: "I shall not break your heart. I am not a pony who breaks hearts. I am a pony who mend them~..."
+The alicorn filly giggled tenderly: "I shall not break your heart. I am not a pony who breaks hearts. I am a pony who mend them~... "
 
 
 [END]

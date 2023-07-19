@@ -320,3 +320,5 @@ A renewal of magic streamed into her ancient body. She reached for the hidden El
 [hr]
 
 The next alicorn who ascended and joined the princessdom, was of Love, of course. Who else it could be?
+
+[END]

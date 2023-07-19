@@ -7,3 +7,16 @@ laughs gleefully
 
 Children are parasites
 
+tricksy
+
+
+intercessory - заступник
+
+
+dilated pupils
+
+
+witchfire
+dragonfire
+
+Names have great power
