@@ -9,6 +9,7 @@ Children are parasites
 
 tricksy
 
+edifying - поучительный
 
 intercessory - заступник
 

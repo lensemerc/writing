@@ -1,4 +1,4 @@
-Крея/Кейв Джонсон
+Крея/Кейв Джонсон/Сенатор Армстронг
 
 Page on stage
 
@@ -7,7 +7,11 @@ I want to win the ultimate game, so I would be free of it!
 "The reason to win the game is so that you can be free of it."
 
 If there is a god, than he needs to be killed
-   
+
+The fact that Armstrong is, at the end of the day, a dirty cheater and a hypocrite, is to me at least perfect. Of course the guy shouting about “We should all be free!” is only talking about himself. “We” to these people always, always actually means “I.”
+
+https://www.youtube.com/watch?v=-avJIDU_I1Y
+
    Он был там когда рэйнбоу дэш совершила первый рэйнбум, и это подтолкнуло его на события в фике
     
 

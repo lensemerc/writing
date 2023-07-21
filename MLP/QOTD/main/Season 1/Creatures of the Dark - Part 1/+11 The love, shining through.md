@@ -104,10 +104,14 @@ She's a diplomat, and there is but one method of diplomacy when dealing with mon
 
 tricksy little ponies
 
+Empathy is what connects us all, and holds this world together
+
 Готовятся к битве с чейнджлингами. Затем ENOUGH Целестии заставляет их всех притихнуть, и взрыв, и на несколько секунд все становится светло как днем
 
 Все напуганы
 Взрыв почти уничтожает башню
+
+Принц Блюблад
 
 Стигиан пользуется замешательством чейнджлингов и нападают на них, застреливает из арбалета командира, и затем они пользуются преимуществом
 

@@ -21,8 +21,8 @@ Roaming, nickering,
 Thieving and bickering,
 that churned and crooked vile hag!
 "despicable crone!" "haughty old bat!"
-Nopony likes her, and no one calls to play.
-All town would breathe easy if she went away.
+Nopony likes her, no one calls to play.
+All would breathe easy if she goes away.
 
 But she
 Lingering, lumbering,
@@ -43,8 +43,8 @@ a lock of the hair,
 a page from a diary,
 a trinket from shelf,
 a small stuffed toy,
-a shriveled dark rose,
-a rusted lucky horseshoe,
+a shriveled rose,
+a rusted horseshoe,
 even a slice of raspberry pie! She's like a magpie!
 That's what she puts in her greasy, torn bag
 				                             sleazy old hag!
@@ -61,19 +61,76 @@ Foreign castaway, her kindness she sought.
 "Your future's with us!                                                            
                                        [sub][i]and our white little lies~♫[/i][/sub]"
 
-One night 
+All of their warnings the girl took in stride.  
+All of them wanted the threat to subside.
+Thin as a flower, the girl was astute.
+Sour and dour, but not fueling dispute.
 
-woes
+Her peaceful mind resolute.
+
+The Fate took the reins before she could act.
+The hag had a plan that she had to enact.
+In moonlit candescence, her desire was shown:
+To steal ponies' essence and make it her own.
+
+The girl met her alone.
+
+The c
+
+Miasmal and crude, the crone looked at her high.
+Trembling, unwavering, the 
+
+Went to shoo her away with an axe
+
+axe
+
+
+Trembling yet unwavering flower,
+
+But all sensetiveness, all essence and heart,
+
+All of the ponies, of course, meant her well,
+
+
+Evaporated like dew
+
+Soon, one gleamy dreamy night,
+(when every pony gets a fright)
+
+But she's all sensetiveness, 
+                     all essence and heart,
+Her lingering thoughts remained true.
+
+
+
+One step at a time, 
+She conquered path to 
+
+Some people remind me of sharp dazzling diamonds. Valuable but lifeless and loveless. Others, of the simplest field flowers, with hearts full of dew and with all the tints of celestial beauty reflected in their modest petals.
+
+You're all sensitiveness, you're the flower of everything, you're stylization, the perfume and essence of all things.
+
+heart full of dew
+
+, but filly is resolute
+
+She approached the menacing 
+
+Miasmal and crude, the hag stood resolute
+Spewing 
+
+Gleam of celestial beauty 
+					in her modest smile.
 
 Clumsily, without any possible grace,
-She took her into an eager embrace.
+She gave the hag tight and earnest embrace.
 
 "Can you hear-hear?
 Hear hear
 Hear-hear
 How knock-knocking it into your chest?
-Like a silken touch
-As a gentle nudge
+Like a silken touch,
+As a gentle nudge,
 Can you hear how it calling out?
 the Magic of Love?
 to your heart?"[/center]
@@ -136,7 +193,7 @@ Prismia jerked head up, stared with a bewildered glare. She mustered just enough
 
 [i]Enough of this.[/i]
 
-Like in a daze, she turned in a haze, a rat in a maze filled with wrong choices... Facing the hut, she gripped tightly the woodcutters axe left lying on the grass, then lunged forward, climbed the small ladder at the side of the building. There was placed the nexus of the machine, its soul, while most of the ugly body was concealed down below. Years of hard labor went into this thing. Priceless gemstones were laid in the foundation of the project, being hidden away in the houses of ponies to serve as absorbers and conductors of their natural-born love. Dragon scales adorned the device, as well as exact replica of the medallion on her chest, exquisite and unique, now heavy as lead... Prismia adored the machine, the culmination of her life's work.
+Like in a daze, she turned in a haze, a rat in a maze filled with wrong choices... Facing the hut, she lifted and gripped tightly the woodcutters axe left lying on the grass, then lunged forward, climbed the small ladder at the side of the building. There was placed the nexus of the machine, its soul, while most of the ugly body was concealed down below. Years of hard labor went into this thing. Priceless gemstones were laid in the foundation of the project, being hidden away in the houses of ponies to serve as absorbers and conductors of their natural-born love. Dragon scales adorned the device, as well as exact replica of the medallion on her chest, exquisite and unique, now heavy as lead... Prismia adored the machine, the culmination of her life's work.
 
 "*What am I doing?*"
 
