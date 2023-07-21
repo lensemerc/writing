@@ -21,3 +21,6 @@ witchfire
 dragonfire
 
 Names have great power
+
+
+Сингулярность это место где причинно-следственные связи исчезают

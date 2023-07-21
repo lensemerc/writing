@@ -553,14 +553,38 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "MLP/QOTD/addendum/notes/Season 2/CotD - 2.md",
+                "file": "MLP/QOTD/addendum/chars/prismia.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "74663be41369b3e5",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "MLP/QOTD/addendum/races/ponies/crystal ponies/government.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "acd39185cdbef86f",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "MLP/QOTD/main/Season 1/in work/Promising Cadence.md",
                 "mode": "source",
                 "source": false
               }
             }
           }
         ],
-        "currentTab": 45
+        "currentTab": 47
       }
     ],
     "direction": "vertical"
@@ -626,7 +650,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "MLP/QOTD/addendum/notes/Season 2/CotD - 2.md",
+                "file": "MLP/QOTD/main/Season 1/in work/Promising Cadence.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -643,7 +667,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "MLP/QOTD/addendum/notes/Season 2/CotD - 2.md",
+                "file": "MLP/QOTD/main/Season 1/in work/Promising Cadence.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -666,7 +690,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "MLP/QOTD/addendum/notes/Season 2/CotD - 2.md"
+                "file": "MLP/QOTD/main/Season 1/in work/Promising Cadence.md"
               }
             }
           }
@@ -688,36 +712,36 @@
       "obsidian-textgenerator-plugin:Text Generator: Templates Packages Manager": false
     }
   },
-  "active": "efe416f93d1bbb15",
+  "active": "acd39185cdbef86f",
   "lastOpenFiles": [
-    "MLP/QOTD/addendum/notes/Season 1/ttotpos.md",
-    "MLP/QOTD/addendum/notes/Season 3/will of entropy.md",
-    "MLP/QOTD/addendum/notes/Season 3/chars for las pegasus.md",
-    "MLP/QOTD/addendum/notes/Season 1/promising cadence.md",
+    "MLP/QOTD/main/Season 1/in work/The Hand of Discord.md",
     "MLP/QOTD/main/Season 1/in work/Promising Cadence.md",
-    "MLP/QOTD/main/Season 2/Threads of Lies.md",
+    "MLP/QOTD/addendum/notes/general.md",
+    "MLP/QOTD/addendum/notes/ideas-plots.md",
+    "MLP/QOTD/main/Season 1/The Tomb of The Prince of Silence.md",
+    "MLP/QOTD/addendum/chars/rainbow dash.md",
+    "MLP/QOTD/addendum/notes/Season 3/chars for las pegasus.md",
+    "MLP/QOTD/main/Season 4/The End of The Queen of The Dark.md",
     "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/+11 The love, shining through.md",
     "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/+13 Far above.md",
     "MLP/QOTD/main/Season 1/in work/Noir Las Pegasus.md",
-    "MLP/QOTD/main/Season 1/in work/plan.md",
-    "MLP/QOTD/main/Season 1/The Tomb of The Prince of Silence.md",
-    "MLP/QOTD/main/Season 1/Here lies Princess Amore.md",
-    "MLP/QOTD/main/Season 1/Warmth of the Stars.md",
-    "MLP/QOTD/addendum/chars/mellow twinklestar.md",
-    "MLP/QOTD/main/Season 3/plan.md",
-    "MLP/QOTD/addendum/races/ponies/equestria/las pegasus",
-    "MLP/QOTD/main/Season 4/plan.md",
-    "MLP/QOTD/addendum/races/ponies/equestria/government.md",
+    "MLP/QOTD/addendum/notes/Season 2/chars for crystal empire.md",
     "MLP/QOTD/addendum/races/ponies/crystal ponies/government.md",
     "MLP/QOTD/addendum/notes/Season 2/CotD - 2.md",
-    "MLP/QOTD/addendum/races/ponies/equestria/genetic manipulation of the wildlife.md",
-    "MLP/QOTD/addendum/notes/general.md",
+    "MLP/QOTD/addendum/notes/Season 1/ttotpos.md",
+    "MLP/QOTD/addendum/chars/flurry heart.md",
+    "MLP/QOTD/addendum/chars/mellow twinklestar.md",
+    "MLP/QOTD/addendum/chars/shorn page.md",
     "MLP/QOTD/addendum/chars/prismia.md",
-    "MLP/QOTD/addendum/notes/ideas-plots.md",
-    "MLP/QOTD/addendum/races/dragons/notes.md",
+    "MLP/QOTD/addendum/notes/Season 1/promising cadence.md",
+    "MLP/QOTD/addendum/notes/Season 3/will of entropy.md",
+    "MLP/QOTD/main/Season 2/Threads of Lies.md",
+    "MLP/QOTD/main/Season 1/in work/plan.md",
+    "MLP/QOTD/main/Season 1/Here lies Princess Amore.md",
+    "MLP/QOTD/main/Season 1/Warmth of the Stars.md",
+    "MLP/QOTD/main/Season 3/plan.md",
+    "MLP/QOTD/addendum/races/ponies/equestria/las pegasus",
     "MLP/QOTD/addendum/races/ponies/night ponies",
-    "MLP/QOTD/addendum/history; timeline.md",
-    "MLP/QOTD/addendum/theater of war/maps and notes.md",
     "notes",
     "MLP/QOTD/addendum/races/elks",
     "MLP/QOTD/addendum/races/abyssinians/dogs",

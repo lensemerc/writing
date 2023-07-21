@@ -10,3 +10,6 @@
 first victims of tricksters are themselves
 
 Oh, but love is power...
+
+Ткань пространства-времени разрывается
+https://www.youtube.com/watch?v=u4tpkwkiSDg
