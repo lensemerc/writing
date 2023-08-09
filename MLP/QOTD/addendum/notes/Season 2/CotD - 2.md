@@ -1,9 +1,34 @@
+Мельница - Обряд
+
+Кристал Эмпаир - мотиф снежинки
+Снежинка на жопе у Аморы
+
+https://www.youtube.com/watch?v=UdMKyAj33SE
+
+"Don't be afraid of dark and cold."
+
+
+"Do you believe in destiny, Cadance?"
+
+
 Шорн объявляет о независимости Лас Пегасуса
 
 Консул рассматривает возможность упразднения Целестии как правителя, но Шорн спорит против этого. Целестия пытается понять какую игру он ведет
 
 "Do you want to become next Princess, Shorn?"
 
+Кристал Пони видят Сомбру:
+"The Deceiver! "
+
+You aren't supposed to. Light had led you astray by a promise of normal life, a real life.
+
+Место в Драгонлэндс: The Paleridge
+
+Сомбра не препятствует Каданс ходить и делать что вздумается. Он знает что без дочери она никуда не денется
+
+Сомбра умирает от того как ему в грудь вбивают кристал харт. Он обретает плоть а затем разваливается медленно в пыль
+
+"What's a dragon?" She scoffed, "A flying snake, that's what."
 
 1. ### _[_18:40_]_Flovv Krovv_:_ 
     

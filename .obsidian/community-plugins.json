@@ -2,5 +2,6 @@
   "obsidian-git",
   "obsidian-dictionary-plugin",
   "obsidian-textgenerator-plugin",
-  "obsidian-discordrpc"
+  "obsidian-discordrpc",
+  "better-word-count"
 ]

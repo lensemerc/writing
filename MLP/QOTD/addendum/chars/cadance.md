@@ -1,3 +1,6 @@
+Every time I close my eyes, I see nightmares.
+
+
 The first thing any diplomat learns is to protect their weak spots
 
 "I am a diplomat, and war is merely a method of diplomacy. Maybe the least effective one, but still..." 
@@ -13,3 +16,32 @@ In a peaceful time though, her nice and kind personality is more prevalent, but 
 1. ### _[_10:46_]_CCC_:_ 
     
     She's probably the sort to stop an army by getting the general's wife into her city. Where said general's wife will absolutely not be mistreated. No, she will be given a very good meal, where she can simply ask for almost anything and get it at once, in comfortable surroundings... ...which just _happen_ to be _very close_ to the wall that the invaders are approaching. "Almost anything" does not include an _exit_. And then Cadance will set up a video call with the general in question. She won't threaten. She won't bluster. She'll even promise to send the general's wife home, quite safely, by that evening. But I think it's _very_ likely that the army is going to stop advancing at that point.
+
+1. ### _[_15:33_]_FanOfMostEverything_:_ 
+    
+    Cadence's headspace is fascinating. Kind, supportive, open-minded... and just slightly alien.
+    
+1. ### _[_15:43_]_Forcalor_:_ 
+    
+    yeah, she is supposed to be like your cool older sis, almost down-to-earth and without any hidden agenda
+    
+2. ### _[_15:44_]_Forcalor_:_ 
+    
+    maybe something similar to Twilight, but more mature and less booksmart
+    
+3. ### _[_15:44_]_FanOfMostEverything_:_ 
+    
+    And _maybe_ an ulterior motive in matchmaking.
+    
+4. ### _[_15:46_]_Forcalor_:_ 
+    
+    well, yes. I won't be playing into that, but definitely. like noticing who is good for whom, and nudging into right direction, lightheartedly
+    
+5. ### _[_15:46_]_Forcalor_:_ 
+    
+    which implies observant nature, of course, yes
+I think it's an interesting direction to take Cadance's character. It's understandable how her experiences with the changelings, and all the violence and betrayal would cause her to become jaded and cynical. The struggle between her desire to protect and do what is right, and her growing anger and resentment towards the world, could make for a compelling story arc.
+
+
+
+В будущем: поет. Путешествует по городам вместе с семьей. Вживается в растущий и меняющийся новый мир. 

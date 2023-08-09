@@ -15,3 +15,15 @@
     Not sure who could be elves though. Kirins?
 
 (reformed changelings, elks)
+
+1. ### _[_2:08_]_Estee_:_ 
+    
+    Y'know.
+    
+3. ### _[_2:08_]_Estee_:_ 
+    
+    Griffons are _any_ combination of great cat and predatory bird.
+    
+4. ### _[_2:08_]_Estee_:_ 
+    
+    Any at all.

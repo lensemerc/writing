@@ -1,0 +1,4 @@
+They absolutely do not have an army, besides what you can consider as alternative name for 'Royal Guard': "E.U.P. Guard".  
+I've written around it as that Equestria seems downright _obscure_ from outsiders perspective, a sun-blessed land of mystique where the alicorn dwells (alicorns at the time of the show). You need to be mad to try attacking it, because all previous attempts ended badly for invaders. Ponies just do not need a conventional army, and Celestia actually softly pedaling against such an establishment, working into the ponies minds the idea that all they need for protection is her. So far it worked.
+
+Also guards seem to be protecting cities in general, because Equestria generally is a wild and untamed land. It shouldn't bode well for would-be invaders too, if they are land-based. Good luck reaching Canterlot before it has a chance to respond. Everfree Forest alone seems like a great hindrance of natural origin

@@ -17,14 +17,16 @@ The internal ministries of Equestria, representing the various aspects of the na
 5. The Ministry of Finance. -- Lord Shorn Page
 6. The Ministry of Justice
 7. The Ministry of Industry
+8. The Ministry of Foreign Affairs - responsible for maintaining Equestria's foreign relations, trade and diplomacy. -- Какая-нибудь зашоренная баба
 
 Raven Inkwell - Personal assistant to Celestia
+Kibitz - royal scheduling advisor https://www.myjewishlearning.com/article/yiddish-words/ добавить словечки еврейские
 
 появляются в течение истории:
 
 The Ministry of Defence - responsible for Equestria's security and protection against external threats. -- организует Целестия
 The Ministry of Intelligence - делает Кризалис
-The Ministry of Foreign Affairs - responsible for maintaining Equestria's foreign relations, trade and diplomacy.
+
 Research and Development - как часть Ministry of Arcane
 
 Semi-constitutional monarchy посм.

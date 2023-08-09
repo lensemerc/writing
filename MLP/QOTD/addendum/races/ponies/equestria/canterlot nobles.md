@@ -1,0 +1,1 @@
+https://www.reddit.com/r/mylittlepony/comments/e6r9nv/publiq_worldbuilding_the_nobility_of_canterlot/?onetap_auto=true
