@@ -1,3 +1,12 @@
+"This is what is going to happen. You will retract your creatures from the vicinity of the Royal Palace, and you will let me to continue to run the government."
+
+"Why would I listen to you?"
+
+Celestia noted that question weren't asked in combative tone. Chrysalis was genuinely curious, she felt secure. That is good. "I can promise you some fun."
+
+Chrysalis cackled. "Fun? Oh, I [i]love[/i] this... Fine." Her green eyes flared. "
+
+
 Короткая стычка когда Целестия снимает повязку с глаз Кризалис. Та пытается достать её глазами, это не получается из-за амулета. Её рог вспыхивает, Целестия выворачивает голову Кризалис и угрожает сломать её рог
 
 

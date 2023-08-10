@@ -78,7 +78,7 @@ As she kept silence and tried to find excuse not to go, a familiar figure appear
 
 "[i]Heck, maybe he really has some of alicorn blood in him,[/i]" Cadance wondered, eyeing that scorch. She was hoping that Blueblood would be knocked out for longer. "Ah, if it isn't you, good Prince Vladimir. What a sight for sore eyes. How do you fare? Does the night treat you well?"
 
-"Cadance, I was informed that my [i]Adjudicator[/i] is in your posession," Blueblood pointed his hoof almost threatingly, "Relinquish it to me at once."
+"Cadance, I was informed that my royal [i]Adjudicator[/i] is in your posession," Blueblood pointed his hoof almost threatingly, "I demand you to relinquish it to me at once!"
 
 "The [i]what[/i] now?" Cadance cocked her head, trying to withheld laughter, then looked under her wing, "Oh, you mean the sword! I'll keep it for now. Maybe you should be more aware of where you trying to stick it, dear brother," her smile was disarmingly innocent.
 
@@ -126,7 +126,7 @@ She saw scurrying dark shadows beyond the wall of her magic, between uneven drop
 
 Right before the wall, Stygian was hunched over the one of dead changelings, while surrounded by number of guards. Two of Cadance's personal royal guard were among others, acknowledging her with curt nods as she and stallions joined the commotion. During recent disasterous wedding, she allowed these crystal ponies to go partake in the city-wide celebration, and haven't come to regret this decision since they quickly found her in ensuing chaos.
 
-"If we are going at war with those creatures," Stygian was looking collected and serious, as he was holding up a speech, "we should at least understand how to fight them in combat. Look close. Their insides aren't that different from ours, so if you hadn't skipped your basic anatomy lessons, you should know where to strike to hurt the most."
+"If we are going at war with those creatures," Stygian was collected and serious, as he was holding up a speech, "we should at least understand how to fight them in close combat. Look here. Their insides aren't that different from ours, so if you hadn't skipped your basic anatomy lessons, you should know where to strike to hurt the most."
 
 "But what about their chitin?" Ivory Rook, one of her guards, spoke up. He, Beam Flitter, and Stygian, immediately shared some semblance of camaraderie, that was known only to those who lived through the events that occured one thousand years ago. 
 
@@ -136,13 +136,13 @@ Cadance hadn't pried into it. She hadn't got a chance yet.
 
 Some of the members of the Royal Guard were pale, already showing signs of anxiety. Shining Armor, Ivory Rook, and Beam Fitter, remained composed and attentive. Vladimir finally stepped aside, not willing to participate in it.
 
-"-neck, inner thigh, groin area, underarm, stomach—by the looks of it they have blood circulation system very similar to ours," Stygian spoke academicaly impassionate, and for a second he reminded Cadance of Twilight in moments when she [i]really[/i] gets into topic that interests her and dissociates with reality completely, "One good cut or puncture, and they can just bleed out with whatever they have instead of blood... Some fluid plasma of unique sort?... Can't be sure. What could be troubling for us the most, is this—"
+"-neck, inner thigh, groin area, underarm, stomach—by the looks of it they have blood circulation system very similar to ours," Stygian spoke impassionate, and this reminded Cadance of Twilight, specifically when she [i]really[/i] gets into topic that interests her and dissociates with reality completely, "One good cut or puncture, and they can just bleed out with whatever they have instead of blood... Some fluid plasma of unique sort?... Can't be sure. What could be troubling for us the most, is this—"
 
 His hooves moved into the opened section of a changeling's torso. Cadance noted the lack of use of telekinetic magic. Stygian scooped up and pulled dark glistening entrails of perished creature, his scrunched muzzle showing barely a hint of displeasure.
 
 "Oh, I can't watch..." Cadance murmured. But she kept watching anyway.
 
-"See this?" Stygian looked at them starkly, "It is a digestive system, atrophied because of lack of intended use, but in theory perfectly functionable nonetheless. They have a complete set of organs, you can see for yourselves if you wish. Ergo, we can posit that, for all intents and purposes, they are like ponies but severely twisted by dark magic." Stygian finished his grim speech, and made a pause to let the thought settle in.
+"See this?" Stygian looked at them starkly, "It is a digestive system, atrophied because of lack of intended use, but in theory perfectly functionable nonetheless. They have a complete set of organs, you can see it for yourselves if you wish. Ergo, we can posit that, for all intents and purposes, they are like ponies but severely twisted by dark magic." Stygian finished his grim speech, and made a pause to let the thought settle in.
 
 "What does that supposed to mean?" Shining asked with confusion, glancing at the living changelings, who didn't seemed to be thrilled by ongoing public autopsy, "What, they are mammals?"
 
@@ -170,9 +170,9 @@ His hooves moved into the opened section of a changeling's torso. Cadance noted 
 
 "Believe it or not, I've got it from a friend in the Royal Guard. The Arcane Ministry's tuition is finally paying off, Vlad?" Shining smiled lightheartedly.
 
-"Father showed me some ropes," Blueblood shrugged.
+"Father blessed me with personal tutorship," Blueblood shrugged.
 
-Cadance arched her brow, examining the device. "He raised a good point. Why do you even need this toy, love?"
+Cadance arched her brow, examining the device. "Vlad raised a good point, for a change. Why do you even need this toy, love?"
 
 "Oh, I'm going out there. After Twilight. Someone needs to bring her back."
 
@@ -262,7 +262,7 @@ The one that was leading the procession caught her attention, stepping in front 
 
 "Nothing good, I am afraid. As you can see, we came here under Princess Celestia's direct order. There's only changelings with her in the Palace now, to my knowledge." Kibitz answered grimly.
 
-Cadance nodded. Almost the whole staff of the Royal Palace was here, including all who was hosted there this day in any capacity—a sizable lot. She noticed more soldiers of the Royal Guard among the ponies, a welcoming sight. Their commander was captain Glimmering Shield, current second-in-command under Flash Magnus. That meant that Magnus himself was somewhere else in the city, still fighting for its freedom.
+Cadance nodded. Almost the whole staff of the Royal Palace was here, including all who was hosted there this day in any capacity—all in all, a sizable lot. She noticed more soldiers of the Royal Guard among the ponies, a welcoming sight. Their commander was captain Glimmering Shield, current second-in-command under Flash Magnus. That meant that Magnus himself was somewhere else in the city, still fighting for its freedom.
 
 Just like others. All are fighting, except her. Cadance's jaw clenched.
 
@@ -288,9 +288,9 @@ Cadance nodded again. It seemed typical for Celestia sometimes, for better or wo
 
 "You still not recovered fully, brother," she smiled sheepishly.
 
-"Give me back my [i]weapon[/i], mare!" He roared, scaring her, and turned to nearby guard, "Your spear, quickly, you dolt! I'll go and [i]carve[/i] out path through the changeling horde to the Castle itself, if I have to!"
+"Give me back my [i]weapon[/i], mare!" He roared, scaring her, and turned to nearby guard, "Your spear, quickly, you imbecile! I'll go and [i]carve[/i] out path through the changeling horde to the Castle itself, if I have to!"
 
-"Belay that command," Cadance gathered herself and spoke with steel in her voice, then turned to Gleaming Shield, who already was done with his inspection, "Captain, Prince Blueblood is not feeling well. Let your charges escort him to the safe room, where he won't hurt anypony, most of all himself. Senior nurse Cheery Hooves will show you the one."
+"Belay that order," Cadance gathered herself and spoke with steel in her voice, then turned to Gleaming Shield, who already was done with his inspection, "Captain, Prince Blueblood is not feeling well. Let your charges escort him to the safe room, where he won't hurt anypony, most of all himself. Senior nurse Cheery Hooves will show you the one."
 
 "I'm fine! I am perfectly fine! Don't you dare!" Blueblood growled, but no one listened to him. Three guards pinned him down and dragged away—at least at first, until the young noble found dignity to walk by himself.
 
@@ -410,23 +410,23 @@ Stygian pursed up lips, looking starkly with his pale eyes. His hoof moved to cr
 
 "This animal just doesn't know any better," she said out loud, boisterously, "Look at it, all it can do is to destroy and perverse. So what if it wags its tongue around? How does that justify anything?"
 
-"I j-just m-might know some th-things, believe me," the changeling quipped, "I know, how you ponies are tricksy, [b]tricksy[/b]... All ho-hoarding love to yourselves, all the time... To get it out of you is a re-rewarding challenge."
+"I j-just m-might know some th-things, believe me," the changeling quipped, "I know how you ponies are tricksy, [b]tricksy[/b]... All ho-hoarding love to yourselves, all the time... To get it out of you is a re-rewarding challenge."
 
-"Sister, you're right, why do even listen to this? What for?" seething with rage, Blueblood brandished weapon, "Lower that barrier."
+"Sister, you're right, why do even listen to this? What for?" seething with rage, Blueblood brandished weapon, "Remove that barrier."
 
-Cadance turned, frowning, and her breath hitched, as she looked back at ponies. They all were livid, scared, perplexed. Applejack met eyes with hers, and it was strange to see helplessness from usually confident and dependable mare.
+Cadance turned, frowning, and her breath hitched, as she looked back at ponies. They were livid, perplexed. Applejack met eyes with hers, and it was strange to see helplessness from usually confident and dependable mare.
 
 Stygian spoke tensely: "Fighting them would be unwise. We would be just overwhelmed in open field."
 
 "Yes-s, that is right..." the changeling, that obdurate monster, grinned, as he was joined on his side of the barrier by others, "We-we w-will be victorious, pony. It is inev-evitable."
 
-"Then what are we doing here!?" Prince Blueblood glared, agitated, "These barbarians killed our families, and what, we came out for some [i]peace[/i] talk? Cadance, aren't you an alicorn? Can't you just obliterate them!?"
+"Then what are we doing here!?" Prince Blueblood glared, agitated, "These barbarians killed our families, and what, we came out for some [i]peace[/i] talk? Cadance, aren't you an alicorn? Can't you just destroy all of them, and spare us this menace!?"
 
 "I am sorry for your loss, Vladimir. Even one death is one too many. Any death is one too many. It isn't a reason to let vengeance cloud our mind," Cadance uttered, but lack of emotion betrayed her. She knew she managed to find the right words, but she wasn't sure she believed in them right now.
 
 She noticed how Applejack glanced at her again.
 
-"Quit it with proselytizing," Prince Blueblood growled, "You really want try to excuse that? [i]That[/i]? Where is your [i]honor[/i]?"
+"Gah! Quit it with proselytizing," Prince Blueblood growled, "You really want try to excuse that? [i]That[/i]? Where is your [i]honor[/i]? You're supposed to be royalty! To protect us!"
 
 It was all a mistake. You can't be 'diplomatic' with those who treat you like prey. It will only make things worse, she knew it, and yet made this juvenile mistake... 
 
@@ -440,11 +440,11 @@ She heard how changelings laughed.
 
 "Worthless!"
 
-Cadance's ear twitched, and she rose her head high, trying to suppress the urge to launch at them. Later. She will make sure that the hospital is guarded, she will come for Shining and Twilight, without unnecessary bloodshed. It is still salvageable...
+Cadance's ear twitched and she rose her head high, trying to suppress the urge to launch at them. Later. She will make sure that the hospital is guarded, she will come for Shining and Twilight, and do it all without unnecessary bloodshed. The situation is still salvageable...
 
-She stopped in her tracks, stiffened the from sound of sudden distant racket. She snapped back.
+She stopped in her tracks, stiffened from the sudden sound of racket and shrieks. She snapped back.
 
-A ray of powerful magic, of which Cadance had never seen before, tore itself from the side of Royal Palace. It went across several towers of the city, demolishing them, then grazed the Canterlot Mountain. Tremendous rumble engulfed everything.
+A ray of powerful magic, of which Cadance had never seen before, tore itself from the side of Royal Palace. It went across several towers of the city, demolishing them, then grazed the Canterlot Mountain. Tremendous rumble closed in and engulfed everything.
 
 "[i]They are fighting![/i]" Cadance thought, her wings flared, "[i]She is fighting! They are fighting with her![/i]"
 
@@ -454,53 +454,53 @@ The ground under her hooves quaked.
 
 The whole city trembled. 
 
-The city cried like a wounded beast. It had a voice, terrible and inequine:
+It cried like a wounded beast. It had a booming voice, terrible and inequine:
 
 [center][b][size=2.5em][b]"ENOUGH!"[/b][/size][/center]
 
-Blinding flash!
+[canter]Blinding flash![/center]
 
-It became bright as day. From the castle, in every possible direction, a powerful light beamed. Ancient building convulted. 
+It became bright as day. From the castle, in every possible direction, a powerful light of ancient magic beamed. The building convulsed. 
 
-The haunting demand, filled with ire, was echoing.
+The haunting demand, filled with ire, was echoing:
 
 [center][b][size=2.5em][b]"ENOUGH!"[/b][/size][/center]
 
-Cracks went across pavement and walls of nearby buildings. The rain stopped for few moments, the dark clouds, lit from beneath, swirled in incandescent grey. Everyone cowered, trembling. Cadance heard how someone whimpered, others' prayed.
+Cracks went across pavement and walls of nearby buildings. The rain stopped for few moments, the dark clouds, lit from beneath, swirled in incandescent grey. Everyone cowered in terror. Cadance heard how someone whimpered, heard praying voices, asking for mercy.
 
 [center][b][size=2.5em][b]"ENOUGH!"[/b][/size][/center]
 
 Something impossible happened, the mountain of Canterlot, ever present on the backdrop, jerked up. [i]No[/i], Cadance realized, it is the platforms on which the city was nestled, sagged down. Despite having wings from birth, the alicorn got gut-sucking empty feeling, as if she is about to fall...
 
-Several lightning bolts sizzled and struck into Canterlot, one went directly into barrier overhead. Not expecting that, Cadance cried from pain in her horn, and her magic immediately dissipated. Heavy rain, wind, scorching smell, still subsiding heat, everything rushed on ponies, overwhelming all senses.
+Several lightning bolts struck into Canterlot, one went directly into barrier overhead. Not expecting that, Cadance cried from pain in her horn, and her magic immediately dissipated. Heavy rain, wind, scorching smell, still subsiding heat, everything of it rushed on ponies, overwhelming all senses.
 
-Cadance saw how Stygian, one of the few who wasn't dazed by what just happened, stood tall and pulled the trigger of the crossbow. The changeling commander's head jerked back, and he rose on his hindlegs, while flailing hooves. The bolt was lodged deeply into his eyesocket. He took a step back, keeled over, with surprised expression on his muzzle. Changelings scattered from the body. 
+Cadance saw how Stygian, one of the few who wasn't dazed by what just happened, stood tall and pulled the trigger of the crossbow. The changeling commander's head jerked back, and he rose on his hindlegs, while helplessly flailing hooves. The bolt was lodged deeply into his eyesocket. He took a step back, keeled over, with surprised expression on his muzzle. Frightened changelings scattered away from the body. 
 
 "Strike! Strike them now!" as Stygian's voice was almost drown out by thunder, he threw away crossbow and drew a short sword, "For the Princesses!"
 
-The source of blazing light was quickly dissapearing, giving way to darkness. The ponies charged, pulling Cadance with them. Pushed by bodies from every side, with widened eyes, she worked her hooves until she found herself in the midst of chaotic battle.
+The source of blazing light was quickly dissapearing, giving way to the darkness. The ponies charged, dragging Cadance along with them. Pushed by bodies from every side, overtaken by ardor and screams, she worked her hooves until she found herself in the midst of chaotic battle.
 
-She tore sword from the scabbard, trying to figure out where is the enemy. Despite tutorship from many mentors, including Celestia and Luna themselves, she never expected to find herself in a scenario like this.
+She tore sword from the scabbard, trying to figure out where the enemy is. Despite tutorship from many mentors, including Celestia and Luna themselves, she didn't expect to use her skills in practice.
 
-Her crystal guards were gone somewhere. Searching for them, she run forward, noting how Blueblood was piercing one changeling with a spear, or how Applejack bucked other one in the wall. A shadowy creature leapt at Cadance from above, she caught it with aura, slammed forcefully on its back. With a practiced movement, she pressed the edge to enemy's throat.
+Her crystal guards were gone somewhere. Searching for them, she ran forward, noting how Blueblood was clumsily piercing one changeling with a spear, or how Applejack bucked other one in the wall. A shadowy creature leapt at Cadance from above, she caught it with aura, slammed forcefully on its back. With a practiced movement, she pressed the edge to enemy's throat.
 
 In sparring it would've meant that her partner is beaten. The changeling looked at her in fear, its lips moved, blubbering something. Cadance hesitated, panting from the rush of adrenaline.
 
-Despite all her bravado, she never actually had taken anyone's life before. It felt like taboo to her, to the Princess of Love. She could withstand death and tough decisions, but ideas of war and conflict, even after everything, so far seemed like something from a telltale book about princesses and knights. 'Not in Equestria,' she used to thought. 'A pity. It would be fun. Would be romantic.' 
+Despite all her bravado, she had never taken anyone's life before. It was like taboo to her, as the Princess of Love. She could withstand death and tough decisions, but an actual armed conflict, even after everything, so far seemed like something from a telltale book about princesses and knights—not [i]real[/i] ones, of course. 'Not in Equestria,' she wanted to think. 'A pity. It would be fun. Maybe even romantic.' 
 
-After all, just like always, there's another day, a better day tomorrow, when everything could be resolved...
+After all, just like always, there's another day, a better day of tomorrow, when everything could be resolved...
 
-"[i]Maybe I can just take it into custody. We can talk and figure it out. It is afraid, it is beaten. Killing it wouldn't be right, I must try to show kindness, make an example... And it is small...[/i]"
+"[i]Maybe I can just take the creature into custody. We can talk and figure it out. It is afraid, it is beaten. Killing it wouldn't be right, I must try to show kindness, make an example... And it is small...[/i]"
 
-Evading the blade in inches, the beast lunged forward, and sank its teeth into her shoulder, barely missing neck. Cadance gasped in disgust. She pierced the changelings' side and pushed down, feeling how her power is [i]leeched[/i] by the monster. Not [i]again.[/i] She pulled away and brought weapon on the creature, then once more, and it went deep through the treacherous beast's chest.
+Evading the blade by inches, the beast lunged forward, and sank its teeth into her shoulder, barely missing neck. Cadance whinnied in disgust. She pierced the changelings' side and pushed down, feeling how her power is [i]leeched[/i] by the monster. [i]Not again![/i] She pulled away and brought weapon on the creature, then once more, and it went deep through the treacherous beast's chest.
 
-Cadance collapsed down on the hilt of sword, her unkempt wet mane sticked to her shoulders and back, and her little tiara fell into the dirt. She watched as the creature was agonizing and succumbing to nothingness, as last vestiges of life were leaving it in ragged slow breaths. 
+Cadance collapsed down on the hilt of sword. Her unkempt wet mane sticked to her shoulders and back. Her little tiara fell into the dirt. She watched as the creature was agonizing and succumbing to nothingness, as last vestiges of life were leaving it in ragged slow breaths. With its last breath, it smiled.
 
 It felt like a dream, or maybe it was like an awakening. 
 
-The Princess of Love felt absolutely nothing. There was no remorse, no grand revelation about herself, now that she sullied her hooves. 
+Death, like always, wasn't pretty. Just stupid and swift. The Princess of Love felt absolutely nothing, though. There was no remorse, no grand revelation about herself, now that she sullied her hooves. 
 
-She still was who she always was, and it frightened her the most.
+She remained exactly who she always was, and it frightened her the most.
 
 "[i]It is normal. It is an abomination, a monster, right?[/i]" the Princess tried to calm herself, looking around. 
 
@@ -508,48 +508,144 @@ Barely few minutes had passed, and the changelings were already beaten. She saw 
 
 Stygian was walking to her, cool and collected. "[i]Just monsters, right?[/i]" she tried to think again, as her gaze fell on other dead beasts around.
 
-"Your Highness? Are you hurt?" The strategist helped her stand. She nervously shrugged with a wing, and felt calmer, seeing that her crystal guards are fine.
+"Your Highness? Are you hurt?" The strategist helped her to stand and retrieve weapon with royal regalia. She nervously shrugged with a wing, and felt calmer, seeing that her crystal guards are unharmed.
 
-Everyone was fine, in fact, not considering few fresh cuts and bruises.
+In fact, everyone was unharmed, not considering few fresh cuts and bruises. There was no celebration of victory, however. They looked at each other, completely at a loss, doubting that they made the right decision.
 
-"What was that?" Prince Blueblood had wild glazed look at him, still reeling from recent shock, "Did you all heard that? Saw that?"
+"What was that light?" Prince Blueblood had wild glazed look on him, still reeling from recent shock, "Did you all heard that? Saw that?"
 
-"Do you think it was Celestia?" asked someone from the guards.
+"Do you think it was Princess Celestia?" asked someone from the guards.
 
 "No, it couldn't be..."
 
-"But it was her voice..." 
+"But it was her voice, Is it?..." 
 
-"Enough chatter!" Gleaming Shield barked, and casted her an expectant look. Cadance blinked in confusion, before she remembered that she is in charge.
+"Enough chatter!" Gleaming Shield barked, and casted her an expectant look. Cadance blinked once in confusion, before she remembered that she is in charge.
 
 "Thank you, captain," she said hoarsely, "I am going to investigate. Stygian, you have an authority to act on my behalf. Protect the hospital. Ivory, Beam, you're with me. Let's do it quickly."
 
-"Ah coming with," Applejack nodded, resolute, "Ah need just five to ten minutes, Your Highness. Haveta call other girls, and then, we'll find Twilight, and Shining. We will take back whole Canterlot if we need!" 
+"As if I would listen to—" Vladimir began speaking, with reddened cheeks.
 
-Cadance smiled warmly at the sight. Twilight's friends really were wonderful, aren't they? Without hesitation, the Princess turned to others: "Guards, restrain Applejack and lead her back to the safe place."
+"Ah'm coming with," Applejack cutted him off, nodded with ardor, "Ah need just five to ten minutes, Your Highness. Haveta call other girls, and then, we'll find Twilight, and Shining too. We will take back whole Canterlot if need to!" 
 
-"Huh?" Young mare peered at her in confusion. 
+Cadance smiled warmly at the sight of it. Twilight's friends really were wonderful, aren't they? Without hesitation, the Princess turned to others: "Guards, restrain Applejack and lead her back to the safe place."
+
+"Wh-huh? What?" Young mare peered at her in confusion. 
 
 "You heard the Princess," Gleaming uttered with a bit of a pause, and his stallions surrounded the farmer. 
 
-She exclaimed in frustration, recoiling from their spears: "Uh, Your Highness!? What in tarnation—"
+Applejack exclaimed in frustration, recoiling from spears: "Uh, Your Highness!? What in tarnation is going on?"
 
-Containing a sigh, Cadance cutted her off in stentorian voice: "A while back, Celestia told me that the Elements might be the last hope for Equestria. She made me make promise, that if unexpected happen and things go sour, I'll try to preserve you. I am not about to squander this hope, without knowing what is going on. I won't risk no one else."
+Cadance heaved a sigh, and spoke in stentorian voice: "A while back, Celestia told me that the Elements might be the last hope for Equestria. She made me promise to her, that if unexpected happen and things go sour, I'll try to preserve you. I am not about to squander this hope without knowing what is going on. I will risk no one else."
 
-"B-but," Applejack stammered, surprised, "we don't even [i]have[/i] Elements, they're broken, they... What sense does that make right now!? We managed without them!"
+"B-but," Applejack stammered, surprised, "we don't even [i]have[/i] Elements, they're broken, they... What sense does that makes right now!? We managed without them!"
 
 "Who said that they can't be fixed somehow? [i]Hope[/i], Applejack. While you're alive, there's still hope," Cadance turned away, resolute, "I've made my decision. We're done here."
 
 She proceeded forward fast, mostly because she couldn't withstand more questions. Few tears traced down her muzzle.
 
-"Hope... Hope... Hope..." She whispered, almost called out, as she walked deeper into the darkness. When all else fails and future filled with uncertainty, what else there to do, but be hopeful?
+"Hope... Hope... Hope!..." She whispered, almost called out, as she walked deeper into the darkness. When all else fails and future is filled with uncertainty, what else there to do, but be hopeful?
 
 [center]═════════════════════════════ 𒀭𒀭𒀭 ═════════════════════════════[/center]
 
-𒄈 [b][size=1.1em]A[/size][/b]
+𒄈 [b][size=1.1em]T[/size][/b]hey walked, then switched to gallop. Didn't gone far, just down the road and few turns. Cadance's horn shone, and she covered them in the shroud of invisibility.
+
+"[i]Shining went here,[/i]" she thought with warmth, "[i]By Celestia, what an idiot. What idiots we both are.[/i]"
+
+"Your Highness, if I may inquire, what is our plan?" Ivory Rook cleared his throat, looked down on his transparent legs with child-like wonder.
+
+"Lower your voice," she asked. They reached one of the numerous bridges of the city. It was fastest way from the the hospital to the Royal Palace in the Upper Canterlot, maybe even the only viable one, given the circumstances.
+
+Cadance glanced around, then turned to her ponies. Something at back of her head noted that she is mimicking Celestia's posture, complete with slightly lifted foreleg. Seems it definitely became like a second nature to her. 
+
+"I want you to find a place to hide, and then watch this spot. If you meet here Prince Shining or Princess Twilight, try to give me a signal."
+
+"A signal?" Beam Flitter was perplexed, "But Princess, where would you be?"
+
+She nickered, and flapped her wings, soaring into the sky and removing them from the field of her magic. Suddenly visible, they glanced above in confusion, trying to discern where she is. 
+
+"This is not farewell. I'll come back soon, my ponies," Cadance assured quietly. She began flying higher into the rain and to the clouds, until she remained completely alone, with no one to worry about but herself.
+
+And now...
+
+What now? After all that happened, flying and feeling the rush of wind was uplifting. She spread her wings, looking over the damage the fighting had caused. She wished that Canterlot was just asleep and did not look so dead.
+
+The changelings were easy to spot. If Canterlot could be seen as dead, then they were like flies, feasting on carrion. They were roaming the narrow streets, still numerous enough to be a threat, and seemingly sacking the city. Cadance saw how they were engaging in random fights, or dissapearing inside the houses, crawling in and out of the broken windows. She shuddered to think what was going on in there, and what could be happening to ponies that were still alive.
+
+Cadance's heart was aching. If Celestia had won her battle, she would've surely made them stop already. Her ancient castle was awfully quiet and dark. No sign of anyone. 
+
+In dread of what she could uncover inside of the castle, Cadance forced herself to fly instead over the changelings, who were ammassed at the square in front of it. Amidst torn decorations of celebration that never occured, they wandered like insects and beasts, paying no mind to their own dead and wounded, keeping stalking in search of the food. 
+
+In spite of everything, they persisted. There was at least few hundreds of these creatures.... Was Canterlot truly lost to them? Just like that, barely in span of one night? Cadance began to realise that her hopes might be in vain. She barely saw anything down below. 
+
+In silent prayer, she closed her eyes. 
+
+Was it really so grim? She stubbornly refused to despair. Even if war is inevitable, it would be a war of liberation. The changelings could be beaten, the broken can be fixed...
+
+A gentle light fell on her muzzle. She looked upwards and saw the stars twinkle in the vast blackened sky. As if by some unknown magic, the clouds were slowly shifting and parting, and all the while Cadance kept looking in complete astonishment, captivated by the ethereal beauty above her.
+
+The silver glow of the Moon shone, stealing her breath. Its radiant beams illuminated the landscape, casting a surreal glow on everything it touched. Cadance couldn't help but feel a sense of tranquility wash over her.
+
+"[i]Cadenza, you really are an idiot. You're only lost when your spirit is broken[/i]," she thought to herself, looking anew at the charred city below her.
+
+There were so many times when others expected a miracle from her, and now she was reminded by how they felt. It was as if unseen force was helping her. In the light, she saw familiar white coat of a unicorn, unconsious, dragged by pair of changelings across the castle's courtyard.
+
+Cadance drew a sword and folded wings, falling on them like a bird of prey. They barely had time to react, and this time nothing could stay her hoof. Blueblood's blade went through them like butter.
+
+With deed's done, Cadance pulled Shining on his back, fearing the worst. He was singed by flames, with a gash across his shoulder, numerous bitemarks. Cadance searched for any signs of life. He was barely breathing.
+
+"Dear, please, wake up!" She whinnied in low tone, hunching over them. Should've brought some water, a medicine bag, [i]anything[/i]. Her hoof helplessly went over the husbands wound.
+
+"My knight... Darling..." she whispered tearfully, and tried to pull him from the ground, while keeping the invisibility field active. Even with all her strength, she failed. Shining remained completely unresposive.
+
+She pressed muzzle against his chest, crying. It couldn't end like [i]this[/i]. She couldn't just leave him [i]now[/i]. She could maybe found some cart, or dispel invisibility and lift him with aura, but... the changelings...
+
+She willed with all of her heart for Shining to be fine. And then, before her eyes, just like years ago, a small apparition of magic went from her horn and touched Shining's torso.
+
+He coughed, wheezed, taking a breath. Curled up moving aside, and barfed out a pool of green slime. Cadance held him in her hooves, while he was slowly regaining his senses.
+
+"It's alright... Everything's gonna be alright," she promised, trying to be brave for him.
+
+He glanced from under lock of hair, wet from sweat and blood. "You're beautiful," he groggily whispered, and spewed down last of the liquid. 
+
+Cadance smiled weakly, studying his wounds. "Can you walk?"
+
+He grasped at her with healthy foreleg, and pulled closer. She squeaked under the weight of stallion body, when he tried to lean on her. "Sorry," he mustered, still delirious, "Where... the others?"
+
+"I am alone," Cadance answered warily, trying to take a step with him. 
+
+Shining wriggled in pain, beginning to pant faster.
+
+"Is castle safe?" She asked, and heard how Shining chuckled through the pain.
+
+He looked at her with weird undiscernable expression, uttered something under his breath.
+
+"What? Shiny, please... What happened?" A cold feeling was in her stomach, "You're acting strange."
+
+"Celestia." His muzzle scrounged, and he shook his head, "She turned Twilight to statue."
+
+Cadance stiffened. They stopped shambling forward and stared at each other for a few seconds. "That is impossible," she replied in shaken tone.
+
+"Saw it with my own eyes."
+
+"No, it's a lie. A trick. A changeling's illusion."
+
+"N-no, Chrysalis, she... She... [i]She[/i], I believe, remained unharmed..." Shining's grasp on her strengthened, and he pulled Cadance even closer, "Love, how much do you know about Celestia?" He asked in weak, yet determined tone.
+
+Cadance cast a fearful look at the castle, looming above them. "What [i]should[/i] I know?"
+
+Shining was silent.
+
+"You think she fell after all?" Cadance asked again, forcefully, "To the Darkness? To Chrysalis?"
+
+Her husband licked his dry lips, and hung his head. "Listen, dove. I want you far away from her. From them both. From their schemes."
+
+Cadance could hardly believe what she heard. "Shiny, darling, you're not yourself. "
 
 
-""
+
+
+They began crossing the cortyard, 
 
 
 Она летит в невидимости, пытаясь разглядеть хоть что-нибудь. Затем, будто бы по волшебству, облака расчищаются и Луна светит ярко.
@@ -559,6 +655,10 @@ Skies cleared up and she gasped in astonishment, looking at clear Moon and Her l
 As if unseen force was helping her.
 
 "My knight"
+
+"Celestia is under her control?"
+
+"I do not know."
 
 
 "Stay with me," she whispered to Shining
@@ -570,7 +670,8 @@ As if unseen force was helping her.
 "What?" 
 
 "To stone, dove."
-"Why? Why would she do that?"
+
+"But why?"  Why would she do that?"
 
 Canterlot looked unfamiliar.
 

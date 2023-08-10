@@ -64,3 +64,6 @@ But it would be easier here. Why not stay?
 
 Cadance sighed, cutted her off in stentorian voice: "A while back, Celestia told me that the Elements might be the last hope for Equestria. She made me make promise, that if unexpected happen and things go sour, I'll try to preserve you. I am not about to squander this hope."
 ^ Обыграть как Целестия рассказывает Каданс про Элементы, перед ночью солнцестояния 
+
+Cadance glanced around, then turned to her ponies. A little voice in back of her head noted that she is mimicking Celestia's posture, with spreaded wings and slightly lifted foreleg. Seems it definitely became like a second nature to her.
+^ Отсылка, это тоже
