@@ -16,6 +16,20 @@ first victims of tricksters are themselves
 
 Oh, but love is power...
 
+Something inside her, little by little, gone numb.
+
+
+*Celestia nuzzled back, smiling warmly at the changeling queen.*
+
+"That's the thing, my love... **Your love** is what's keeping this world alive. Your love, your ferocity, your fire... It's all **one and the same** with the fire of life. If you burn this world away, it will be reborn **by your** flames. You're not a parasite, Chrysalis, you're the **source** of love. What I love is **You.** Just you."
+
+
+Chrysalis was silent, looking with widened, scared eyes.
+
+She sighed, trembling, and slowly moved hoof across Celestia's neck, down. "Fire of life..." She whispered slowly, and narrowed her eyes, "I love that, Celestia. More than anything."
+
+"There's one more unanswered question, though..." Her hooves pinned down alicorn's slender frame. "Who's the top, and who is the bottom?..."
+
 Ткань пространства-времени разрывается
 https://www.youtube.com/watch?v=u4tpkwkiSDg
 

@@ -1,0 +1,1 @@
+Sunburst was not a confrontational pony, but laying a hoof on his discarded earmuffs gave him courage.

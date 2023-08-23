@@ -3,13 +3,39 @@
 Кристал Эмпаир - мотиф снежинки
 Снежинка на жопе у Аморы
 
+Начало: Кризалис не в Кантерлоте
+
+Целестия просыпается очень долго
+Её будит Кибитз. Она запоздала с подъемом солнца на пару часов, и все боялись её трогать. Плюс Кризалис взяла форму Целестии и ходила командовала от её имени
+Can I have some water? 
+Thank you.
+Do I look like a tyrant to you?
+For the first time in centuries she was genuinely tired. Her muscles ached, her throat was soared. She exerted herself.
+She felt alive.
+Целестия: Everything that happened was like a fever dream, nay, a nightmare, that found its way to the reality.
+Кризалис поставила статую Твайлайт перед замком. Её уже видели. В разговоре, Целестия решает её оставить
+
 https://www.youtube.com/watch?v=UdMKyAj33SE
 
 "Don't be afraid of dark and cold."
 
+"We are all creatures of darkness now."
+
+
+ПЕСНЯ ОТ ЛИЦА КРИЗАЛИС
+ФАЛЬШИВАЯ АМОРЕ ПОЕТ ПЕСНЮ
+ПОТОМ КРИЗАЛИС ПОЕТ ПЕСНЮ
+песни каждую главу/через главу
+
+
+Фальшивая Аморе обещает Каданс научить её как пользоваться силами
+
+Луна в бешенстве. Она не верит Аморе, но она не способна точно вспомнить какой та была
+
 
 "Do you believe in destiny, Cadance?"
 
+Про детей здесь
 
 Шорн объявляет о независимости Лас Пегасуса
 
@@ -29,6 +55,106 @@ You aren't supposed to. Light had led you astray by a promise of normal life, a 
 Сомбра умирает от того как ему в грудь вбивают кристал харт. Он обретает плоть а затем разваливается медленно в пыль
 
 "What's a dragon?" She scoffed, "A flying snake, that's what."
+
+
+Кризалис Целестии, когда прилетает в гриффин кингдом с новостями:
+Be safe. целует
+
+Потому что все мы – мягкие и слабые. И даже в зрелости мы маленькие плачущие дети, нуждающиеся в любви, внимании или хотя бы ненависти. Мы достаточно глупы, чтобы иногда вызывать друг у друга серьезные эмоции – и в этом помутнении ума заключено наше счастье, потому что на самом деле никто не нужен никому.
+
+We are all soft and weak. Even when we are mature, we are still little crying children, aching for love, attention, or at least hate. We are stupid enough to induce real emotions in others, and in this delusion lies our happiness, because in truth, no one needs anyone else.
+
+When the scales fall from you eyes and you see deep into the Truth you will be burdened with a great pain. It feels as a great sorrow without beginning or end. It neither comes nor goes, it is simply there. I can not explain it but it appears to be part of our fundamental condition. Why should our hearts be so burdened? People seek enlightenment as some kind of bliss but the truth is rarely so comforting. -- из рандомного коммента на тытубе
+
+
+Chrysalis traced her eyes aside, standing there now. She puffed, examining the corner of the room, then slowly looked back at the alicorn Princess.
+
+There was silence.
+
+Then she asked, surprisingly quiet: "Want me to preen your wings?"
+
+"_Yes_!"
+
+_A single word of answer was enough to answer the changeling queen. Yes, yes, she wanted the preening. She wanted to be touched. She wanted to be caressed. She wanted... no, needed... to be held._
+
+"_Please_ stay with me", _she whispered, unable to stop herself from feeling like a desperate, pathetic, needy pony. Celestia had never felt like this for anyone or anything. Yet she felt it now... all these feelings for the changeling queen._
+
+
+The Queen and the Princess both sat back on the bed. Chrysalis sat nearby. She leaned closer, slowly unfurling Celestia's wing with a hoof. 
+
+She proceeded to gently move her sharp teeth along Celestia's feathers. Well, she **tried** to be gentle. It was a funny feeling. Involuntarily, she caused the alicorn pain at one point. It was obvious she isn't used to it.
+
+_Celestia couldn't hide the gasp, or the moan that the first touch of Chrysalis's sharp teeth caused in her. Of course she felt pain, of course. And yet, her body wanted more. She wanted more. She could feel her hips rising towards the queen. She could feel her breath becoming ragged, her eyes closing._
+
+_There was something beautiful and something ugly in her response, all at once.
+
+*The pain was not of too much importance. All that mattered was... this. The changeling queen's soft mouth, gently preening her wings, slowly and sensually licking up and down her feathers. For some time, Celestia forgot about the fact that she was talking to a monstrous changeling queen, and that she was in real danger.*
+
+*She felt like a normal pony, being preened and taken care off. She felt vulnerable, and needy. She was enjoying it. She wanted to feel this way for the rest of her life.*_
+
+Some time had past. The Queen was slow, methodical, and diligent. She tried to be as comforting as possible, which was very hard for her to do.
+
+"There," eventually, she uttered quietly, and moved away. Both wings were done. Chrysalis took a deep sighed, and looked aside again. "You seem to be liking it, Celestia..."
+
+*Celestia sighed happily as she shook her wings. She liked how she felt, she liked how the changeling queen's preening made her body tingle and burn. It felt* **natural** *to want this. To need this. To desire this.*
+
+"Yes..." *Celestia finally replied, a little nervously.* "You... you can't imagine... I've never felt this way with anyone. I..." *She bit her lip as a blush spread across her face.*
+
+1. ### _[_17:31_]_MAS_:_ 
+    
+    Do you have a name suggestion for the mother and her brother?
+    
+2. @MAS
+    
+    Do you have a name suggestion for the mother and her brother?
+    
+    ### _[_17:34_]_Forcalor_:_ 
+    
+    Griselda would reflect 'Gilda' nicely. it actually could be her full name, why not. Nice character dynamic for family bar that, I'd wager that list of words of starting with G has nice ones here
+    
+3. ### _[_17:35_]_Forcalor_:_ 
+    
+    like, Gretta, Garrot, Grime, and spins on real names maybe? Grangel? Glinda?
+    
+4. ### _[_17:35_]_MAS_:_ 
+    
+    Any of them could work
+    
+5. ### _[_17:35_]_Forcalor_:_ 
+    
+    eh, there is a ton of names
+    
+6. ### _[_17:36_]_Forcalor_:_ 
+    
+    Hey, call little one, 'Little G'
+    
+7. ### _[_17:38_]_Forcalor_:_ 
+    
+    hmm, actually, I should take into consideration for my own fic... yeah, it would be cool, there is totally a suitable scene in the griffin kingdom
+    
+8. ### _[_17:38_]_MAS_:_ 
+    
+    I'm thinking about changing things up, instead of the brother, it should be her husband, and the husband's childhood friend becomes part of the family
+    
+9. ### _[_17:42_]_Forcalor_:_ 
+    
+    like, imagine, Celestia sits in the dirty and dump Gilda's place, and Gilda with her family is squawking and making a further mess while trying to accommodate the guest and like A TON of names starting with G, and 'there is Little G the second, here is the third...' And finish it with Celestia deadpanning 'I'm not hungry', or equivalent, while they wait for guest to begin first
+    
+10. ### _[_17:42_]_Forcalor_:_ 
+    
+    Yeah, I am writing it in. thanks, internet
+
+People seek enlightement... 
+
+Санберст сидит окруженный защитными кругами, до последнего, пока тьма издевается над ним
+
+Come to me, Stygian
+Повествование в духе you, вдохновиться AMом из игры
+
+Come to me, Mistmane
+
+Come to me, Sunburst
+
 
 1. ### _[_18:40_]_Flovv Krovv_:_ 
     

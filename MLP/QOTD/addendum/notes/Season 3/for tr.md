@@ -8,3 +8,12 @@
 Она в полном развале
 
 Кризалис предлагает вишневую мороженку, потому что Твайлайт фиолетового цвета
+
+
+
+
+1. Omne trium perfectum
+    
+2. ### _[_1:45_]_Flovv Krovv_:_ 
+    
+    Rule of three Best things come in three

@@ -11,3 +11,68 @@ A bad sadfic says, "Hey, remember this thing? It was sad, wasn't it? You should 
 The Raw Power of Episodic Storytelling
 [https://www.youtube.com/watch?v=OIqrT2cFBAI](https://www.youtube.com/watch?v=OIqrT2cFBAI "https://www.youtube.com/watch?v=OIqrT2cFBAI")
 
+
+1. ### 21:57_]_Snowy Haze_:_ 
+    
+    @Estee Her slow trot paused, just long enough for her left hind hoof to lightly tap against the cobblestones three times. The precisely-styled tail curled in twice, covered her mark on each side before going back to its standard loft. How much did you study equines? XD
+    
+2. ### _[_21:57_]_Estee_:_ 
+    
+    As necessary, depending on the story.
+    
+3. ### _[_21:57_]_Estee_:_ 
+    
+    I've had to research behaviors, movement range, effects of various plants in the diet... all sorts of little things.
+    
+4. ### _[_21:58_]_Estee_:_ 
+    
+    If you're asking 'Have I taken a formal course?' No.
+    
+5. ### _[_21:58_]_Estee_:_ 
+    
+    I've also never lived with horses.
+    
+6. ### _[_21:58_]_Estee_:_ 
+    
+    I _have_ ridden.
+    
+7. ### _[_21:59_]_Forcalor_:_ 
+    
+    Need to lean into that for further writing, are there any good sources to dig in? Making references to the fact that characters are equines is highly amusing
+    
+8. ### _[_22:00_]_Estee_:_ 
+    
+    I haven't found any central site.
+    
+9. ### _[_22:00_]_Snowy Haze_:_ 
+    
+    _nods_ Still you have it down well on body language
+    
+
+11. ### _[_22:00_]_Estee_:_ 
+    
+    Lots of little ones, plus a dose of vet journals.
+        
+12. ### _[_22:00_]_Snowy Haze_:_ 
+    
+    But the triple hoof tap was it thoughtfulness or nerves? Horses do both in both cases
+    
+13. ### _[_22:01_]_Estee_:_ 
+    
+    It'll be later in the story, Snowy. That's all I can say for now.
+    
+14. ### _[_22:01_]_Snowy Haze_:_ 
+    
+    Ah alrighty ![🙂](https://discord.com/assets/da3651e59d6006dfa5fa07ec3102d1f3.svg)
+    
+15. ### _[_22:01_]_Snowy Haze_:_ 
+    
+    Sorry just enjoying your effort
+    
+16. ### _[_22:02_]_Estee_:_ 
+    
+    The vet journals are especially good for checking into food issues and things like 'rain rot'.
+    
+17. ### _[_22:02_]_Estee_:_ 
+    
+    That last was a surprise...

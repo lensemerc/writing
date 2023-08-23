@@ -3,7 +3,11 @@ kindred spirit
 [Threads of Lies]
 Флэшфорвард. Королева Кризалис захватывает Коко и использует её для каких-то своих целей (чтобы подобраться поближе к ноблю например)
 
+I think about it like a 60s monster movie, where they cut away from the monster and just show the person's reaction. I try to do the opposite. I cut to the monster, show it in excruciating detail, and focus on its dick.
+
 https://www.youtube.com/watch?v=-avJIDU_I1Y
+
+Аликорны могут опускать и поднимать луну и солнце. Твайлайт делает это самостоятельно 
 
 In good storytelling villains embody darker sides of the heroes
 Целестия - Кризалис (обе Королевы, желание быть свободными, желание контролировать)
@@ -11,7 +15,15 @@ In good storytelling villains embody darker sides of the heroes
 Дэш - Шорн (желание быть свободными, управлять своей судьбой, carve your own path)
 Кризалис - Каданс (любовь, борьба против статуса кво, старое против нового)
 
-Lose of faith it its own creation
+Фик про то как делают стекло
+
+
+I'm sure that ponies would like to think that they are filling cosmic holes, and world kinda revolves around them, but are they *really*? Again, there are many creatures in the setting who go without any marks just fine. They are usually sitting around in some neglect, waiting until ponies will save them, but whatever
+
+
+I think that to shape one's destiny, you need to accept the fact that you aren't there to fill some predetermined hole, and go through the balancing act of not falling into despair in the process. Ponies are seem to be devoid of such burdens, and that is kinda interesting to philosophy about. Crusaders there had gone and done completely the opposite thing
+
+Lose of faith in its own creation
 
 Сфинкс
 
@@ -75,3 +87,8 @@ https://www.youtube.com/watch?v=Tt5lB-RoAi4
 8. ### _[_18:05_]_Aragón, Fancy Witch_:_ 
     
     best way i can describe it is like you know how you read the rules of a game and sorta get what the game is going for
+
+Про эмбера и торакса
+1. ### _[_20:10_]_Moproblems Moharmoney_:_ 
+    
+    I like the idea of this huge submissive, nice guy whose a big dweeb and the petite, dominant, culture shocked girl in a relationship.

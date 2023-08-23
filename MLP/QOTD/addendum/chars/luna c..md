@@ -6,3 +6,14 @@ I entrust thee with this child/It is all up to thee
 
 https://www.fimfiction.net/story/536717/moonstone-and-flameagate
 Подражать этому фику
+
+
+Shakesperian acting
+https://www.youtube.com/watch?v=3yPaLq1EpQw
+
+
+Клевый плащ из летучих мышей
+https://www.youtube.com/watch?v=Fgf4IXU6CcQ
+It is tradition to speak with "We"
+
+Трансформируется

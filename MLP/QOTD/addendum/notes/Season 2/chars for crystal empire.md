@@ -4,7 +4,6 @@ Mistmane
 Sunburst
 Flash Sentry
 Flurry Heart
-выписать персонажей из твайлайт спаркл и кристал спел
 
 
 Prismia не в корте, упомянуть
@@ -15,11 +14,14 @@ Prismia не в корте, упомянуть
 https://www.fimfiction.net/story/536937/1/many-mirrors/mirrorflesh
 Arctic Lily
 
+Indeed, [Bright Smile](https://mlp.fandom.com/wiki/Bright_Smile "Bright Smile") proclaims her as "The Crystal Princess!" at the end of [The Crystal Empire - Part 2](https://mlp.fandom.com/wiki/The_Crystal_Empire_-_Part_2 "The Crystal Empire - Part 2").
+
 Стражники из QOTD:
 Ivory Rook
-Beam Flitter
+Beam Flitter -- погибает
 
 
+из твайлайт спаркл и кристал спел
 Topaz Twist
 Citrine Star
 Night Knight

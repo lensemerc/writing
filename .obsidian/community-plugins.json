@@ -1,7 +1,7 @@
 [
   "obsidian-git",
   "obsidian-dictionary-plugin",
-  "obsidian-textgenerator-plugin",
   "obsidian-discordrpc",
-  "better-word-count"
+  "better-word-count",
+  "obsidian-textgenerator-plugin"
 ]
