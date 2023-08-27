@@ -1,3 +1,5 @@
+Трикси была в Кантерлоте в котд 1, попала к чейнджлингам
+
 1. ### 11:11_]_Moproblems Moharmoney_:_ 
     
     Writing a trixie esque character and I _think_ I get it now! She's fun either way, sociopathic egotism ftw.

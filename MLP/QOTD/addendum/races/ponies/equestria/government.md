@@ -12,7 +12,7 @@ The internal ministries of Equestria, representing the various aspects of the na
 
 1. The Ministry of Health and Wellfare  - responsible for the well-being of Equestria's population and infrastructure.
 2. The Ministry of Agriculture
-3. The Ministry of Arcane - responsible for the regulation and management of magical artifacts and other dangerous magic.
+3. The Ministry of Arcane - responsible for the regulation and management of magical artifacts and other dangerous magic. -- Lord Puppy Eyes
 4. The Ministry of Education and Culture - responsible for Equestria's educational system and research. EEA (Equestrian  Education Association). Chancelor Neighsay
 5. The Ministry of Finance. -- Lord Shorn Page
 6. The Ministry of Justice

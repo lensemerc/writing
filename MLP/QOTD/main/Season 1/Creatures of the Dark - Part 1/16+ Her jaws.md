@@ -1,4 +1,8 @@
+Sprawled against the breast of the mountain
 
+
+
+"Am I getting under your skin, alicorn Princess? Do you feel it? The [b]heat?[/b]"
 
 
 _She couldn't finish the sentence, her body overcome with feelings she could not explain, nor could she do anything as the queen sunk her teeth into her skin._
@@ -16,6 +20,9 @@ There was a long pregnant pause, when Chrysalis just stared at Celestia. Slowly,
 
 I can smell the blood on you from here, Celestia.
 
+
+
+She craved a kiss. The Queen's vile saliva was [i]addictive[/i]. Chrysalis was literally like a drug, and she knew it perfectly, she [i]knew[/i] how to play into it.
 
 Кризалис в отражениях
 
@@ -50,6 +57,11 @@ _The changeling queen was speaking in a feverish, excited, almost deranged manne
 "You lack grace. You lack precision."
 
 
+Her skin was like suede, smooth and tempting. 
+
+"I want to **taste** you... **Inhale** you... I **need** you. I **crave** you."
+
+
 
 Led by a strange compultion, Celestia touched her wound in an elegant, precise motion, and stared at her own blood. It looked oddly bright on the alabaster and golden of her hoof.  
 
@@ -63,17 +75,15 @@ The sight of her blood though? That was different.
 
 "Fear." Celestia responded ever calmer.
 
-It was so unusual, to fear death, to fear for [i]herself[/i]. She savored the sensation, known to her but almost forgotten, and starkly looked at the changeling Queen. 
+It was so unusual, to fear death, to fear for [i]herself[/i]. She savored the sensation, known to her but almost forgotten. 
 
-The Queen was elated. Her wings buzzed, as she was slowly stepping away from the crumbling rubble.
+The Queen was elated. Her wings buzzed, as she was slowly stepping away from the crumbling rubble. Her voice rang with echo: "Fear... Do you truly feel it? The unknown... The [b]ambiguity[/b]... Fear is wonderful..."
 
-Her voice rang with echo: "Fear... Do you truly feel it? [b]Fear[/b] is unknown... Fear is [b]ambiguity[/b]... Fear is wonderful!"
-
-Celestia wanted to fight her for real now. Not to go through motions, not to be engaged in some vague combat, not to act out battle that can end only in one way. She wanted to feel all the same that the Queen felt: passion, even [i]love[/i] for fear, [i]love[/i] for life. This thrill...
+Celestia wanted to fight her for real now. Not to go through motions, not to be engaged in some vague combat, not to act out battle that can end only in one way. She wanted to feel all the same that the Queen felt: passion and [i]love[/i] for fear, [i]love[/i] for life. This thrill...
 
 "Are you creature of fear, Chrysalis?" Celestia smirked, walking towards her.
 
-The changeling wan't answering, grinning, as they began to move against one another in circle, leaving fiery hoofprints in their stride. Celestia's smirk creased into a full-blown smile.
+The changeling wan't answering, grinning, as they began to move against one another in circle, leaving fiery hoofprints in their stride. Celestia's smirk blossomed into a full-blown smile.
 
 
 she was speaking slowly, with an echoing growl behind her arrogant and cutting voice
@@ -131,3 +141,12 @@ You should run, Sister...
 
 И потом уже они такие: "I'm surprised you're played along."
 "I wanted them to get from here just as you did."
+
+
+
+Зеленый рог Кризалис светится во тьме, освещая её лицо
+
+Когда она поражает Целестию, та падает на вершину и склон горы, чувствуя боль во всем теле. It was just like the first time she died. She remembered vividly
+
+
+Their shared fate, their [i]destiny[/i], to be destroyed together.

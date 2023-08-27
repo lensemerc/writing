@@ -1,9 +1,31 @@
 kindred spirit
 
+Целестия хочет расширить Эквестрию и вобрать в неё всех пони, со всеми маленькими нациями
+
+But the problem is that every kingdom is satisfied with staying their little corner and keeping to themselves. **That must change, and I will make it change."** _She spoke with great authority and determination._
+
+"I will unite all of equestria! From the Southern Continent and Maretime to the Northern Kingdoms... I will make **all ponies** follow my lead."
+
 [Threads of Lies]
 Флэшфорвард. Королева Кризалис захватывает Коко и использует её для каких-то своих целей (чтобы подобраться поближе к ноблю например)
 
 I think about it like a 60s monster movie, where they cut away from the monster and just show the person's reaction. I try to do the opposite. I cut to the monster, show it in excruciating detail, and focus on its dick.
+
+Про целестию написали книгу
+
+
+
+Рог Дискорда фигурирует в сюжете каким-то образом
+
+
+
+
+1. ### _[_20:35_]_gapty_:_ 
+    
+    My idea for one fic was a Sunset Shimmer enters EqG world but everything around her is dried up flesh and the sun not moving, and then she meets Principal Celestia and wanders to SCP-2000 to restore humanity. Or just all alone
+
+Сансет попадает в мир EqG, но он ещё не закончил формирование
+
 
 https://www.youtube.com/watch?v=-avJIDU_I1Y
 
@@ -92,3 +114,33 @@ https://www.youtube.com/watch?v=Tt5lB-RoAi4
 1. ### _[_20:10_]_Moproblems Moharmoney_:_ 
     
     I like the idea of this huge submissive, nice guy whose a big dweeb and the petite, dominant, culture shocked girl in a relationship.
+
+
+And so began the new era of rule in Equestria.
+
+It wasn't like before. Celestia needed to be far more stern now, making hard decisions, and using questionable tactics to manipulate and solicit rulers of neighboring pony nations into pledging their loyalty to her, the one and only Sun Goddess, as well as Chrysalis and Luna.
+
+The plan could've take many years to realize, but they had time to spare. Changes were afoot. New, darker times, where ponies were beginning to distance from their easy soft lives, and were learning more of the world around them.
+
+But Celestia wasn't alone anymore, and she could share their burden with those who was closest to her.
+
+*Princess Celestia, Queen Chrysalis, and Princess Luna worked side by side, ruling over Equestria with a combined power that was **unmatched.** Together, they united the pony world, bringing a unity that had previously never known. No longer would ponykind be divided by their lands, their nationalities, their species.*
+
+*They were**united.** And as they had worked to unite the ponies, the ponies had, in turn, began to understand **what it truly meant to fight and struggle.** The pony race had become a united group of creatures who were determined to strive towards a better world.*
+
+The ponies of Equestria, slowly, started to become more and more aware of their surroundings. As their fears grew, and their desires became stronger, they also slowly began to become more **competitive**.
+
+
+*The change in the pony world had been slow, but it was real. As Equestria and the ponies progressed, they became more sophisticated in their ways, more knowledgeable about the forces of nature.*
+
+*Their lands became more developed, more connected, and more united. The ponies were becoming a formidable force on the world stage, and their lands were beginning to prosper.*
+
+*The ponies had begun to understand the value of hard work, the **joys** in **struggle** and **sacrifice.** They were now stronger, more capable, and more united than ever before.*
+
+*And as this change had been developing, both Celestia and Changeling Queen Chrysalis had found their roles in maintaining the **status quo** of the new Equestrian order had fallen to them. It was an uncomfortable role to which they both seemed perfectly suited, and as a result, they had both grown **closer** as a result.*
+
+*As the ponies of Equestria grew, so did their need for a united leadership. The changeling queen and the Sun Princess would continue to rule side by side, creating a united Equestria that would survive for many years to come.*
+
+*It was during this time that the ponies begun to truly understand the meaning of unity.*
+
+*The ponies had always been united by their love for the Sun Princess, and their fear of Queen Chrysalis, but they had not understood the power of **united effort, of shared struggle and sacrifice.** They had always focused on their own **pride** and **individuality.** They had never fought for each other. They had never worked together, truly worked together...*

@@ -11,9 +11,17 @@ She levitated a flower and adorned peytral with it.
 
 "
 
+hateful zeal
+
+I make the Sun go up.
+
+Chrysalis is narcissist
+
 
 "Because everything will end now,"
 
+
+"Did I ruffle your feathers, Celestia?"
 
 "Let you **be feared** by my subjects?"
 
@@ -21,6 +29,12 @@ She levitated a flower and adorned peytral with it.
 
 "I know you've said that ponies don't interest you, but I'm **sure** that even you would adore the sweet and simple ponies and their silly little traditions." *She whispered.*
 
+
+"...I'm **glad** to find another soul that understands..." *Celestia mumbled softly.*
+
+"I've been **tired** of seeing everything as so... so... **simple**." *Her eyes widened.* "Ponies don't fight to be better than their neighbor, they don't even fight for what they want. **They are content to stay in their little safe and comfortable routine.** And they call it **happy**."
+
+"I don't want to be happy. I **need** more. I **crave** more. I need to **fight for it!**"
 
 
 Целестия казуально поправляет просевший город, когда 
@@ -77,9 +91,9 @@ Celestia examined Chrysalis, frowning. "I need to know for a fact."
 
 "Yes, they do. They are capable of everything that your ponies can, and even more... Jealous, Celestia?"
 
-"Are you trying to compete our species?" Celestia chuckled.
+"Are you trying to compete our species?" Celestia smiled.
 
-"What is a life, but a competition?"
+"Life is [b]all[/b] about competition."
 
 
 
@@ -122,10 +136,22 @@ Silence.
 
 
 
+"Render judgment upon me, Celestia. Burn me!" She laughed, wickedly, "Throw away all your dignity, strike me while I am weak! You might not get other chance!"
 
+"What are you trying to achieve, you creature?" Celestia asked in a powerful demanding voice, "To prove to yourself that I am no [i]better[/i] than you? That I am just as weak, so I would resort to deplorable manipulation tactics? That I've already [i]did[/i] during my reign?"
+
+"[b]No.[/b]" Chrysalis hissed, "None of that. No. You know..." She uttered with ragged breath, and took a step closer. "Your ponies... I could've murder them all at any second, just to see pain in your eyes... To savor this pain... To see it, [b]feel[/b] it. The moment it all went sideways, I wanted to crush them, and get a glimpse of your rage. Ah, it would be a beautiful fire, my Sun--"
+
+Целестия прижигает её опять, но Кризалис не останавливается. Она кричит от боли, но продолжает ползти, шепча
 
 Сгорает настолько сильно что облезает плоть и видна кость
-"I could murder them all at any second, just to see pain in your eyes...
+
+Целестия смотрит как будто зачарованная. Кризалис добирается до неё, обхватывает шею, и шепчет в лицо про то как не может вытянуть из неё силы
+can you even imagine how much love did I took? I've reached deep down, and it was like a well that was still going, and going, and [b]going[/b]. Like a cavern. An endless magnificent brilliance. You are the most precious, cherished thing to me, demigoddess.
+
+Швыряет её спиной на трон
+
+"I hate you," she creaked through the bouts of nervous mad laughter, intermingled with crying from her sole remaining eye, "How I [b]hate[/b] you."
 
 
 "But you [i]can[/i] take the heat, are you not?"
@@ -137,6 +163,17 @@ Silence.
 "
 
 
+"You're taste like итп
+
+"I'm curious, now. Are others alicorns demigods too? Your sister? Little Light? Cadenza? I think I would've noticed something the the last one... Interesting..."
+
+[i]Chrysalis won't be leaving Equestria alive.[/i]
+
+"I wonder what you're thinking about now. Do you imagine their screams? Go, take a look. Protect them. I'll just remain here, I [b]promise[/b]. Will be hanging around..."
+
+
+Короткая стычка когда Целестия снимает повязку с глаз Кризалис. Та пытается достать её глазами, это не получается из-за амулета. Её рог вспыхивает, Целестия выворачивает голову Кризалис и угрожает сломать её рог
+
 
 "This is what is going to happen. You will retract your creatures from the vicinity of the Royal Palace, and you will let me to continue to run the government."
 
@@ -144,16 +181,43 @@ Silence.
 
 Celestia noted that question weren't asked in combative tone. Chrysalis was genuinely curious, she felt secure. That is good. "I can promise you some fun."
 
-Chrysalis cackled. "Fun? Oh, I [i]love[/i] this... Fine." Her green eyes flared. "
+Chrysalis cackled. "Fun? And what fun that would be?"
+
+"I will give you everything that you might've expected from me."
+
+"Sounds delightful." Chrysalis played along, "Will you acknowledge me?"
+
+"That depends if you will [i]behave[/i]."
+
+"Oh, I [b]love[/b] this... And what if I won't?" Her green eyes flared.
 
 
 "I might carve out those witch-eyes of yours."
 
 Chrysalis began panting faster under her hoof. "Do you now?" She cooed.
 
+"There's not much to hold me back right now, my 'wife'. So please, just [i]give[/i] me another excuse to destroy you." 
+
+Celestia wanted Chrysalis to keep being stubbornly defiant. Oh, she [i]wished[/i] that the beast would show complete lack of any common sense, as well as any capability to relent under pressure. Rest of this blasted day would've been so easy then, as she would've just snapped the Queen's neck and it will be over.
+
+Fate is a cruel thing.
+
+"Well?" Celestia growled, with thick smoke evaporating out of the corner of her mouth. A gentle image of the alicorn Princess was crackling with streaks of fire in her mane, "Don't make me wait, [i]insect[/i]."
+
+Chrysalis was staring wide-eyed, her breathing was slow, rugged: "Oh, you're [b]smouldering![/b] How delightful... You know, you're saying [b]all[/b] the right words, Princess..."
+
+Ready to cast aura, Celestia ignited her horn. The changeling was [i]irritating[/i].
+
+Chrysalis' recognized the intent. She all tensed up under her, and finally caved in: "[b]F-i-i-ine~[/b]," she literally purred, "I'll behave for [b]you[/b]. But it better be worth it."
 
 
-Короткая стычка когда Целестия снимает повязку с глаз Кризалис. Та пытается достать её глазами, это не получается из-за амулета. Её рог вспыхивает, Целестия выворачивает голову Кризалис и угрожает сломать её рог
+"You are enjoying it too much."
+
+"[b]Someone[/b] around here must enjoy themselves. In situations like this, you gotta take the most from it, darling wife. You know, when you all strangled, alone in the room, with someone else..." Chrysalis heartly chuckled, "Do you enjoy this? To be such domeneering? Is this what you like, don't you?"
+
+
+про повер и то что она может освободиться в любой момент
+
 
 
 Целестия глубоко поражена и озадачена фактом того что Кризалис может создавать разумную жизнь
@@ -170,14 +234,18 @@ These aren't golems, or duplicates. Celestia saw individuals, and realisation st
 It is but a shadow of the decadence we can enact, Celestia
 
 
-"Equestrian Parliament needs to be reorganized anyway," Celestia kept herself in check, not showing dissatisfaction in her voice. Chrysalis's attack on Canterlot made far more damage that she wished to admit. 
+"Equestrian Parliament needs to be reorganized anyway," Celestia kept herself in check, not allow to show any dissatisfaction in her voice. Chrysalis's attack on Canterlot made far more damage that she wished to admit. 
 
 Old system took a blow from it could not recover. If she remains in power, her integrity as a ruler would be questioned in the upcoming months. 'Building' and 'creating' was something far more arduous and effort-inducing than destruction, which Chrysalis so cherished.
 
 Dark times were ahead.
 
+[i]It could've been perfect for Twilight[/i], she thought with some irritation. If only the girl made that decisive blow... No. She shouldn't think like that. [I]It's wrong[/i]. She isn't sore loser, and her inner balance will remain unpertrubed. 
 
-"Render judgment upon me, Celestia"
+What's done is done, and there's no way back now.
+
+
+
 
 
 Письмо от Сансет вздрагивает в её ауре, сгорает.
@@ -194,7 +262,7 @@ You have spunk. I like that.
 "You mean to tell these ones follow you because they care about you?"
 "Precisely that."
 "How is the fact that they view you as a mother is bad?"
-"Affection can make one act unpredictably. Moreover, it creates a sensation of ownership, and I can't have [b]that[/b], can I?... I do not belong to [b]them[/b]. [b]They[/b] belong to me. Do you want your ponies "
+"Affection can make one act unpredictably. Moreover, it creates a sense of ownership, and I can't have [b]that[/b], can I?... I do not belong to [b]them[/b]. [b]They[/b] belong to me. Do you want your ponies "
 There was a point this creature tried to prove to her, Celestia thought. In her cynical approach, she wanted to break down alicorn's beliefs. To test them.
 
 

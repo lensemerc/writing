@@ -9,6 +9,12 @@ sting of wasp is like an act of love. poison like ejaculation (harvester)
 
 laughs gleefully
 
+impelling - побуждающий
+
+tentatively
+
+Starbeam как имя?
+
 "Do you love me for who I am?" Suddenly Chrysalis whispered in Celestia's ear, after a particular deep kiss, a particular strong movement of a foreleg, "Tell me. Do you love me? A monster, a destroyer... Do you love me? I **am** a creature of sin, I have no conscience, I **do not** care for your ponies, and still..." She repeated again, rising above, looking with stark green eyes: "Do you love me?"
 
 "I love you, my dear changeling queen... **No matter what**." *Celestia whispered back between licks.*

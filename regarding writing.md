@@ -1,5 +1,17 @@
 A bad sadfic says, "Hey, remember this thing? It was sad, wasn't it? You should be sad now!" A good sadfic, like this one, says, "Hey, here's why this thing was sad. Here's what it meant to the characters. Draw your own conclusions."
 
+1. ### 1:55_]_Tipper_:_ 
+    
+    Also never forget the most important question in any plot: _Yes, but what if they didn't do that?_
+    
+2. ### _[_1:56_]_Tipper_:_ 
+    
+    If the characters just choose to sit on their butts and do nothing, what exactly will the consequences be?
+    
+3. ### _[_1:56_]_Tipper_:_ 
+    
+    There are a **lot** of stories where the answer is "Nothing at all."
+
 1. [20:20]Estee: Well... there's house jokes about the 'style'. Namely, run off at the keyboard, live in the white space, have characters talk around the actual issue, never be afraid to toss a () anywhere, and don't forget to repeat a key line somewhere!
 2. 
     [20:22]Kirtai: Lots of negative space too
