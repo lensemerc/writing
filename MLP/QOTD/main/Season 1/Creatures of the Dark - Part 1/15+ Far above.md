@@ -1,3 +1,5 @@
+"How much emotions and feelings in there, under your pristine white skin... How much [b]fire[/b]..."
+
 "It will be a long day."
 
 She levitated a flower and adorned peytral with it.
@@ -13,9 +15,75 @@ She levitated a flower and adorned peytral with it.
 
 hateful zeal
 
-I make the Sun go up.
+
 
 Chrysalis is narcissist
+
+"I did sample you, didn't I."
+
+
+
+"Is there anything that you want? Anything at all?"
+
+
+"It is my belief that you should eat what you fear." 
+"They served no purpose, lest you enjoyed that your ponies could wander off in the Everfree and to be turned into stone," 
+
+"That means nothing coming from [i]you[/i], you worthless parasite," "Begone."
+
+Начинает уходить, потом поворачивается.
+"Is there anything that you want, Celestia? Anything at all?"
+
+Celestia did not expect that. 
+
+"Is there anything that you desire?"
+
+"You know what I want. Peace and Harmony, so it could be spreaded among all."
+
+Chrysalis grinned. "No, no, no... Not talking about [b]that[/b], mare, not about this despicable altruism. What do you want for yourself?"
+
+Celestia is silent.
+
+"Everyone are [b]defined[/b] by their desires, Celestia. They are sole thing that giving us the drive in life. So what it is for you? What lies in your heart, I wonder?" Chrysalis stared at her above the shoulder, and vehemently grinned: "Maybe... Maybe you would want stallions? I can [b]arrange[/b] that..."
+
+Celestia was unmoving, not betraying with even a single muscle her inner state of being. Her cutting voice was filled with promise of danger: "If you expect that I will bare my heart before you, creature, then you are sorely mistaken. No gestures of ostensible goodwill will be enough to amend the rift you caused."
+
+"But I do not seek to amend anything, demigoddess..." Chrysalis grinned, "Let's say it is but a [b]tribute[/b]... Maybe you're just more into mares, with all that longing for your little sister?... Or maybe in your heart of hearts you want [b]all[/b] of your little ponies to worship you more intimately, indiscriminately?..."
+
+Strange acute nature of the shapeshifting beast could led it to latch on every movement that could speak volumes of sheer contempt, rising in the alicorn Princess with every word. Seemingly, Chrysalis was enjoying it nonetheless. Lack of outburst was a reaction enough for her, and so she kept talking slowly, with happy green eyes: "What, not even them, my infallible demigoddess? Maybe you would want to indulge into something more innocent? I can make anything happen, and we could keep it as our personal secret. So, how about small precious colts--"
+
+"How [i]dare[/i] you presume something like [i]that[/i] about me, and disgrace me with your presence?" Celestia stopped holding back. She took a step, her great wings flared. "[i]Get out of my sight,[/i] you [i]mongrel[/i]."
+
+
+
+Навещает Филомену, но та отказывается улетать
+
+"Dear Princess Celestia
+
+Today I visited Equestria, and on the one hand, I've learned many wonderous things.
+
+On the other hand, you might say, now I know everything.
+
+See you soon.
+
+Congratulations on your wedding! xoxoxo
+
+Your former student,  
+Sunset Shimmer"
+
+
+
+"Please, Lady Celestia, let us fight in your stead!"
+
+Целестия смеется. Oh, my little pony... Please, understand that I do not wish to hurt your feelings.
+
+
+Celestia: "To fight for Equestria it the fate all alicorns resigned to since its inception. Should it fall, and nothing but darkness will follow."
+
+
+caustic syllables - едкие, язвительные слоги
+
+Turn and face me, Celestia!
 
 
 "Because everything will end now,"
@@ -66,7 +134,7 @@ Oh, but wouldn't I be in my right to do so? Besides, do you seriously expect you
 
 Ah, and you would presume that you know how it works, all cooped up in your toy city, judging everyone from far above, high and mighty? That's **rich**. When was the last time you even spoke genuinely with anyone? 
 
-If you think that crawling around in your dirt and darkness gives better view of the world, you sorely mistaken
+Oh. Looks who's talking... If you think that crawling around in your dirt and darkness gives better view of the world, you sorely mistaken.
 
 
 "You are a picture of degradation. All you know is how to take, never to give anything in return.
@@ -89,7 +157,7 @@ Celestia rolled her eyes. "I have duties to attend to, so keep it short. Do they
 
 Celestia examined Chrysalis, frowning. "I need to know for a fact."
 
-"Yes, they do. They are capable of everything that your ponies can, and even more... Jealous, Celestia?"
+"Yes, they have souls. They are capable of everything that your ponies can, and even [b]more[/b]... Jealous, Celestia?"
 
 "Are you trying to compete our species?" Celestia smiled.
 
@@ -138,7 +206,7 @@ Silence.
 
 "Render judgment upon me, Celestia. Burn me!" She laughed, wickedly, "Throw away all your dignity, strike me while I am weak! You might not get other chance!"
 
-"What are you trying to achieve, you creature?" Celestia asked in a powerful demanding voice, "To prove to yourself that I am no [i]better[/i] than you? That I am just as weak, so I would resort to deplorable manipulation tactics? That I've already [i]did[/i] during my reign?"
+"What are you trying to achieve, you creature?" Celestia asked in a powerful demanding voice, "To prove to yourself that I am no [i]better[/i] than you? That I am just as weak, so I would resort to deplorable manipulation tactics? That I've already [i]did[/i] it during my reign?"
 
 "[b]No.[/b]" Chrysalis hissed, "None of that. No. You know..." She uttered with ragged breath, and took a step closer. "Your ponies... I could've murder them all at any second, just to see pain in your eyes... To savor this pain... To see it, [b]feel[/b] it. The moment it all went sideways, I wanted to crush them, and get a glimpse of your rage. Ah, it would be a beautiful fire, my Sun--"
 
@@ -171,15 +239,27 @@ can you even imagine how much love did I took? I've reached deep down, and it wa
 
 "I wonder what you're thinking about now. Do you imagine their screams? Go, take a look. Protect them. I'll just remain here, I [b]promise[/b]. Will be hanging around..."
 
+Хотя Кризалис висит вниз головой, ей похоже безразлично
 
 Короткая стычка когда Целестия снимает повязку с глаз Кризалис. Та пытается достать её глазами, это не получается из-за амулета. Её рог вспыхивает, Целестия выворачивает голову Кризалис и угрожает сломать её рог
+
+Целестия требует Кризалис убрать чейнджлингов, иначе та убьет её
+
+Разговор о том почему она не освободилась
+
+It would be a long day.
+Помещает цветок в пейтрал
+A longest day.
 
 
 "This is what is going to happen. You will retract your creatures from the vicinity of the Royal Palace, and you will let me to continue to run the government."
 
 "Why would I listen to you?"
 
-Celestia noted that question weren't asked in combative tone. Chrysalis was genuinely curious, she felt secure. That is good. "I can promise you some fun."
+Celestia noted that question weren't asked in combative tone. Chrysalis was genuinely curious, she felt secure. That is good. "I
+
+
+"I can promise you some fun."
 
 Chrysalis cackled. "Fun? And what fun that would be?"
 

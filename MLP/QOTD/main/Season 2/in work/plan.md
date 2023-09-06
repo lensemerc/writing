@@ -15,4 +15,10 @@ gunther o'dimm из витчера -- What i love about him, is that he never, a
 https://www.youtube.com/watch?v=cf6SaA-Kdro 
 тренировка Целестией и Луны Каданс
 
-10,5 истории
+
+Вдохновиться https://kissanime.sx/Anime/fate-zero-dub.92784/Episode-011?id=60946
+Диалог Целетсии и кого-то ещё в прошлом. С королем королей.
+С Королем Грифонов
+
+11,5 истории
+

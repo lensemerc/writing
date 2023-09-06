@@ -1,8 +1,100 @@
+Her skin was like suede, smooth and tempting. 
+
+Chrysalis locked forelegs on the alicorn's neck, pulling herself closer, pushing chests. Celestia felt the urge to give into the temptation. She wanted the kiss. That damn changeling [i]saliva[/i], she recognized—the secretion in Chrysalis' mouth was like a drug, and it was addictive.
+
+
+*Princess Celestia could see in the dim light exactly how the changeling queen moved. It was with a certain grace that was both intimidating and attractive at the same time. Her footsteps were quiet, even though at the same time, they also felt like an inevitable approach of something that might cause a major change.*
+
+"My lovely Queen Chrysalis! You look ravishing today.." *She said with a soft, warm smile.*
+
+"What are you doing here in my chambers?"
+
+"I want to **taste** you... **Inhale** you... I **need** you. I **crave** you."
+
+
+"Your calmness and firmness do not impress me, mare," she smirked, "I can hear how your heart beats, you know. I see that your pupils are dilated in arousal. I can sense your smell, how it spiked now with all kinds of flavors. Ah, you shifting your hooves, there..." She giggled, "Am I getting under your skin?"
+
+""
+
+
+"Do you remember how I humiliated and destroyed you at the wedding of your niece, in front of all your pesky subjects? How I cast down the myth of infallible Sun, and shown them that you're mortal, that you too can bleed and suffer... That even **you** have limits... Even Celestia **herself**..." She growled, keeping going on and licking more feverishly by the second, "Tonight I will do it all over again, my Princess... I will defeat you!"
+
+
+"Have you ever been in the dark forest, Celestia?" 
+"Where nothing is real?"
+
+Попадает в паутину, растянутую между зданиями
+
+
+
+
+"It's no longer about [b]control[/b] or [b]domination[/b]. It is just me wanting to fight you. Don't you?"
+
+Celestia was silent.
+
+"Do you feel alive? This ache in your muscles, this smell of brimstone in your nostrils... The sounds, the [b]effort[/b]..."
+
+"Don't act like "
+
+
+"Had you ever felt the weight of responsibility, Chrysalis? Do you ever acted like the Queen, not mimicking one?"
+
+
+fierce changeling Queen
+ 
+Про то как Кризалис пытается соблазнить Целестию, и та успешно сопротивляется
+
+Затем кусает её, и пошло слизывает кровь с копыта Целестии
+
 Sprawled against the breast of the mountain
 
 
+Do you feel it? Forbidden, and yet tantalizing...
+
+"I don't need them. You are everything that I will ever need.  Powerful you. Forever you. Only you."
+
+What's hotter and more dangerous than the Sun itself?
 
 "Am I getting under your skin, alicorn Princess? Do you feel it? The [b]heat?[/b]"
+
+
+"My alicorn... my eternal sun..."
+
+Chrysalis mumbled, leaning forward.
+
+"I am just so **parched**..."
+
+Пробивает копытами грудь Кризалис и gasped от неожиданности
+
+Such fervor... она шипит, расползаясь червями, скорпионами, и пауками. Целестия видит что 
+
+Целестия поднимает голову и видит её множество отражений в стеклах. Сияющие зеленые глаза
+
+Затем вздымается черный смерч, и она появляется на вершине дома
+
+"Mare of my dreams."
+
+
+
+
+"I do not seek to suffer, so my emotions must be cast aside."
+
+"You are a liar, Chrysalis. You are all emotions. You said so yourself."
+
+
+Преследует Королеву, попадает в паучью паутину, выжигает все вокруг, включая пауков Зрачки Кризалис сужаются когда они сталкиваются Она превращается в дракона, они борятся пламенем. Целестия метает меч в её глотку, призывает другой, пронзает её грудь. Кризалис падает, перевоплощаясь. Когда она под Целестией, пинает её в живот. You dare!
+
+Превращается в паука
+В дракона
+В рой насекомых
+Вызывает своих чейнджлингов и те превращаются в пауков тоже
+
+Целестия зажигает свой рог, ослепляя их всех
+
+
+"Stop hating ponies. What do you even have beyond that?"
+"Don't you **dare** speak like that to me!"
+"Here it is again. All ego and wounded pride, and malice. I will never allow such scornful creature near me."
 
 
 _She couldn't finish the sentence, her body overcome with feelings she could not explain, nor could she do anything as the queen sunk her teeth into her skin._
@@ -16,10 +108,11 @@ There was a long pregnant pause, when Chrysalis just stared at Celestia. Slowly,
 "I want to eat you, Celestia." She suddenly uttered, and then her muzzle broke into a toothy grin. Her voice, breathy, low and seductive, filled the room. She took a shambling step closer.
 "Yessss... I want to tear you to pieces, devour you down to the last bite. To taste your sweat. To hear your screams. I despise you so much... All of you. Everything about you."
 
-"I want to suck down on your marrow, and make you watch... I want to indulge in all kinds of debauchery, to hoard every last bit of your light in myself. To drag you down into deepest black caverns, and not let anyone else ever see you again. I want to [b]do[/b] things to you that you cannot possibly imagine, and it [b]still[/b] would be just a shadow of decadence that we can enact." Her greedy hooves tore into her coat, "I want to [b]burn[/b] and be [b]burned[/b]. To feel alive." 
+"I want to indulge in all kinds of debauchery, to hoard every last bit of your light in myself. To drag you down into deepest black caverns, and not let anyone else ever see you again. I want to [b]do[/b] things to you that you cannot possibly imagine, and it [b]still[/b] would be just a shadow of decadence that we can enact." Her greedy hooves tore into her coat, "I want to [b]burn[/b] and be [b]burned[/b]. To feel alive." 
 
 I can smell the blood on you from here, Celestia.
 
+I want to suck down on your marrow, and make you watch... 
 
 
 She craved a kiss. The Queen's vile saliva was [i]addictive[/i]. Chrysalis was literally like a drug, and she knew it perfectly, she [i]knew[/i] how to play into it.
@@ -57,9 +150,9 @@ _The changeling queen was speaking in a feverish, excited, almost deranged manne
 "You lack grace. You lack precision."
 
 
-Her skin was like suede, smooth and tempting. 
 
-"I want to **taste** you... **Inhale** you... I **need** you. I **crave** you."
+
+
 
 
 

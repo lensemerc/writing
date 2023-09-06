@@ -1,6 +1,21 @@
+Посмотреть на 
+https://www.fimfiction.net/story/540211/ascension-abdication-or-abduction
+и
+https://www.fimfiction.net/story/520470/and-so-i-left
+написать в похожем стиле
+
+
+
+https://en.wikipedia.org/wiki/Sleipnir
+СЛЕЙПНИР
+
 kindred spirit
 
 Целестия хочет расширить Эквестрию и вобрать в неё всех пони, со всеми маленькими нациями
+
+# Fate/Zero 2nd Season (Dub)
+второй эпизод
+призывает Эскалибур. Diyng wish of all soldier slain in battle
 
 But the problem is that every kingdom is satisfied with staying their little corner and keeping to themselves. **That must change, and I will make it change."** _She spoke with great authority and determination._
 
@@ -12,6 +27,10 @@ But the problem is that every kingdom is satisfied with staying their little cor
 I think about it like a 60s monster movie, where they cut away from the monster and just show the person's reaction. I try to do the opposite. I cut to the monster, show it in excruciating detail, and focus on its dick.
 
 Про целестию написали книгу
+
+
+Целестия и Кризалис навещают копию Целестию в мире зеркала
+Кризалис остается в облике небольшой пони
 
 
 

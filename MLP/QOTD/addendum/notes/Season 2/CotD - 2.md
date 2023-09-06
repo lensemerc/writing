@@ -1,3 +1,8 @@
+https://www.fimfiction.net/story/357977/12/time-enough-for-love/12-the-future 
+что-то про любовь тут, посмотреть
+
+I am the edge of peace. Devoted one, draw me against the enemy of life.
+
 Мельница - Обряд
 
 Кристал Эмпаир - мотиф снежинки
@@ -14,6 +19,16 @@ For the first time in centuries she was genuinely tired. Her muscles ached, her 
 She felt alive.
 Целестия: Everything that happened was like a fever dream, nay, a nightmare, that found its way to the reality.
 Кризалис поставила статую Твайлайт перед замком. Её уже видели. В разговоре, Целестия решает её оставить
+
+
+https://mlp.fandom.com/wiki/The_Lost_Treasure_of_Griffonstone
+
+Грифоны имена:
+Vermouth Roux -- фем
+Rinehart -- м.
+
+
+Your kingdom had fallen low, King of Griffins...
 
 https://www.youtube.com/watch?v=UdMKyAj33SE
 

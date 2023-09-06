@@ -1,2 +1,5 @@
 
 From miles away, one can see the city of the Spire of Crystal Empire. The city shone brightly amid the cold, almost on top of the entire world. The Sun fell directly on the crystal-like colorful vibrant walls and reflected light in all possible shades of a rainbow. This ancient city itself is like a prism of beautiful architecture made of crystal and stone. The Light's magic passes through it, bathing the entire realm of Equestria in its warm benevolence and promise of prosperity. No small role in it goes to Crystal Heart, radiating the will of a calm and gentle future. Crystal ponies, nestled in this city, welcomed the flying chariot of Princess Celestia. Several crystal pegasi flew in ceremonial patterns on the sides, escorting the visitor towards the entrance to Crystal Palace. Celestia felt how ancient magic washed over her body. She slightly pulled back, enjoying the sensation.
+
+
+Город увит плющом и украшен цветами. Каданс и Мистмейн сделали его городом-садом посреди снежной пустыни

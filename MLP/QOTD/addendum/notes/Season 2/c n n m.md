@@ -1,3 +1,55 @@
+Ей снилось гротескное животное. С его раскрытой пасти спадало нечто светлое, соскальзывающее вниз с неприлично длинного языка, переброшенного через острые клыки. Оказываясь на кончике, оно окрашивалось в красное и падало каплей крови вниз, ударяясь о черную водную гладь и посылая круги во все стороны.
+Существо с лицом матери укрыло её одеялом, как в детстве. Склоняясь, касаясь губами лба, потом обнимая и бережно прислоняя поверх обнаженной груди с светлым сосцом, существо тихо шептало:
+- После сражений наступает ночь, в которой окровавленная луна превращается в алое солнце. Это знамение новой вехи, требование радикальных перемен, ведь это значит что люди осквернили рай: мир вокруг себя.
+
+- Хочешь увидеть правду о себе? Посмотри в зеркало. Или в отражение на куске льда.
+
+- Что бы ты сделала, если бы встретилась со своим двойником?
+
+
+черная ночь
+вечное небо
+женщина столь же милая мне, как мягкая трава
+world is but a fleeting dream, where nothing is permament
+
+акети обращается в молодого самурая, чтобы подобраться ближе к цели
+женщины скрываются за тонкими бумажными перегородками (обыграть)
+
+The impermanent spring flowers are seduced and scattered by the wind; this ignorant world's autumn moon is surrounded and hidden by clouds. The world knows - need i repeat it? - "That what lives must perish; that which is joined together will certainly fall apart."
+
+"I took hold of his empty, pitiful body.  Would that this was all a dream from which I might soon awake!  But dream or reality, I felt as though I was wandering in darkness without a lamp, on this cold dawn in this fleeting world.
+
+"The impermanent spring flowers are seduced and scattered by the wind; this ignorant world's autumn moon is surrounded and hidden by clouds. The world knows -- need I repeat it? --, 'That which lives must perish; that which is joined together will certainly fall apart.'  
+
+все живое вышло из тьмы
+
+
+Я дух который приходит к тебе ночью, и душит тебя во сне
+
+"Люди устроены так чтобы всю свою жизнь смотреть только вперед. Твои глаза - хищника, преследующего цель. Так почему же я вижу сомнение?"
+
+Потому что ты мясной мешок, наполненный страхом и страданиями, как и все остальные
+Человек-паромник с головой ворона
+
+
+Проделавший неизмеримое пространство фотон света от звезд гас на стекленевшей реснице глаза, и последним усилием, последней мыслью он подумал, что это может значить что он с звездами является одним целым
+
+"не смотри направо"
+"во что бы то ни стало, не смотри вправо"
+"не смотри вправо, девочка, или я съем тебя"
+Повисла на теле идущего Вороноголового, растянувшись на его спине, расслабив руки. Качающийся белый труп. Сажа видела как губы едва двигались, повторяя неслышным эхом:
+"Съе-ем..."
+Темные глаза смотрели прямо в душу.
+
+"Dont look to the right."
+
+"Don't look to the right, or I will eat you, mare."
+
+Ей снилось гротескное животное. С его раскрытой пасти спадало нечто светлое, соскальзывающее вниз с неприлично длинного языка, переброшенного через острые клыки. Оказываясь на кончике, оно окрашивалось в красное и падало каплей крови вниз, ударяясь о черную водную гладь и посылая круги во все стороны.
+Существо с лицом матери укрыло её одеялом, как в детстве. Склоняясь, касаясь губами лба, потом обнимая и бережно прислоняя поверх обнаженной груди с светлым сосцом, существо тихо шептало:
+- После сражений наступает ночь, в которой окровавленная луна превращается в алое солнце. Это знамение новой вехи, требование радикальных перемен, ведь это значит что люди осквернили рай: мир вокруг себя. 
+
+
 "It is time."
 Time was diluted.
 Космик Консул собирается для освобождения Луны
@@ -12,6 +64,39 @@ Time was diluted.
 ### 21:26_]_Forcalor_:_ 
 
 Kinda envisioned this scene right now, where she submerges into deepest waters. Alicorns seemingly fine in _space_, so why not
+
+My light was always just reflection of your own.
+
+
+
+Even light of my precious Moon is not my own...
+
+
+Вписать аллюзию на Офелию?
+
+
+ГОТОВЯСЬ К СРАЖЕНИЮ ПРОТИВ ВСЕПОГЛОЩАЮЩЕЙ ТЬМЫ
+ГОЛАЯ ЛУНА ВЫТАСКИВАЕТ РОГ ИЗ СВОЕГО ЛБА
+ЭТО МЕЧ
+
+"Just look at them! Aren't they truly pretty little things? Don't you think they are just adorable, with their insignificant little lives?"
+
+"Do you... even love them?"
+
+"Of course I love them! My love for them is just vast as my love for you, dear Sister!"
+
+"Please, enough... It hurts me..."
+
+How can she be so... 
+
+
+В застолье она встречает все свои версии
+Они разговаривают с ней и друг с другом
+Selene
+Она как жеребенок
+Nightmare Moon
+Luna
+Её человеческая копия
 
 
 "Are you siding with those ingrates!?"
