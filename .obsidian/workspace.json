@@ -745,7 +745,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "MLP/QOTD/main/Season 1/in work/The Conqueror King.md",
+                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/14+ The looking-glass.md",
                 "mode": "source",
                 "source": false
               }
@@ -818,7 +818,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "MLP/QOTD/main/Season 1/in work/The Conqueror King.md",
+                "file": "MLP/QOTD/main/Season 1/Warmth of the Stars.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -835,7 +835,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "MLP/QOTD/main/Season 1/in work/The Conqueror King.md",
+                "file": "MLP/QOTD/main/Season 1/Warmth of the Stars.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -858,7 +858,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "MLP/QOTD/main/Season 1/in work/The Conqueror King.md"
+                "file": "MLP/QOTD/main/Season 1/Warmth of the Stars.md"
               }
             }
           }
@@ -880,8 +880,10 @@
       "obsidian-textgenerator-plugin:Text Generator: Templates Packages Manager": false
     }
   },
-  "active": "00f6fc24781f793d",
+  "active": "f74d24b073104991",
   "lastOpenFiles": [
+    "MLP/QOTD/text success",
+    "MLP/QOTD/main/Season 1/in work/The Conqueror King.md",
     "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/14+ The looking-glass.md",
     "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/Celestia's Lament notes.md",
     "MLP/QOTD/addendum/chars/chrysalis.md",
@@ -909,8 +911,6 @@
     "MLP/legacy/COTD uwriter",
     "[.md",
     "MLP/legacy",
-    "MLP/QOTD/main/Season 2/in work/plan.md",
-    "MLP/QOTD/addendum/notes/ideas-plots.md",
     "MLP/QOTD/addendum/theater of war/griffon kingdom",
     "Pasted image 20230824230257.png",
     "Pasted image 20230822005429.png",
