@@ -19,7 +19,7 @@ impelling - побуждающий
 tentatively
 
 
-So... for those who've read [**Triptych**](https://www.fimfiction.net/story/101769/triptych)... there's a fight. (For those who haven't, I'll avoid specifics.) Two combatants are going after each other. Nothing's being held back. Eventually, one of them is down.
+""So... for those who've read [**Triptych**](https://www.fimfiction.net/story/101769/triptych)... there's a fight. (For those who haven't, I'll avoid specifics.) Two combatants are going after each other. Nothing's being held back. Eventually, one of them is down.
 
 Some of you can still picture that fight.
 
@@ -27,7 +27,7 @@ Congratulations. Because I didn't really describe it.
 
 I set the mood of the combat. I said something about motion. Expressions, movement, anger and strength. But exact moves? The full sequence of events? Nope. That was on **you**.
 
-You're vicious. You know that, right?
+You're vicious. You know that, right?"" -- из блога эсти
 
 Starbeam как имя?
 

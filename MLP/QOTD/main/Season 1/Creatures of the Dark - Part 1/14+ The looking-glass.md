@@ -3,13 +3,13 @@ backwards + upside down
 
 
 
-As she went through the churning, blinding kaleidoscope, her whole body distorted into a thin line, which was spiraling along the walls of a vibrant tunnel while being outstretched, bent, and torn in most of all possible dimensions. She just couldn't restrain a loud scream, breaking out of her. It wasn't painful at all, though. It was [i]ticklish[/i]! It was like going through a huge magical rainbow-colored laundry machine, but in the end you do not get thoroughly washed; you just spat headfirst into another world.
+As she went through the churning, blinding kaleidoscope of limbo, her whole body distorted into a thin line, which was spiraling along the walls of a vibrant tunnel while being outstretched, bent, and torn in most of all possible dimensions. She just couldn't restrain a loud scream, which broke out of her. It wasn't painful at all, though. It was [i]ticklish[/i]! It was like going through a huge magical rainbow-colored laundry machine, but in the end you do not get thoroughly washed; you just spat headfirst into another world.
 
-Absolutely mesmerizing experience. Oddly nostalgic too, especially when she would remember the first time when it happened to her. Despite all the years that passed, it was still so easy to recall that night in vivid detail... And ever since, each time there was an underlying feeling of dread, an expectation that something would go wrong, which was then followed by a liberating assurance that everything was fine. 
+Absolutely mesmerizing experience—a constant falling, diluted in time. Oddly nostalgic too, especially when she would remember the first time when it happened to her. Despite all the years that passed, it was still so easy to recall that night in vivid detail... And ever since, each time it was entwined with a feeling of dread, an expectation that something would go wrong, which was then followed by a liberating revelation that everything is fine.
 
-It was supposed to be fine now, too. After what felt like a small eternity, Sunset flew out of the other end of the tunnel like a cannonball and slammed with her hindquarters into a wall, lying against it upside-down.
+It was supposed to be fine now, too. After what felt like a small eternity, Sunset flew out of the other end of the tunnel like a cannonball and slammed with her hindquarters into a wall. 
 
-"Ouch," she sighed, observing the darkened room, and giggled: "Oh, [i]man[/i]." It hurts so much."
+"Ouch," lying upside-down, she sighed, observing the darkened room, and giggled: "Oh, [i]man[/i]." It hurts so much."
 
 One would've thought they'd place a mattress for her already. Sunset scrambled up to her hooves and stood up on her hind legs, wobbling on the spot. She let out a tiny laugh, trying to make a step with these new limbs.
 
@@ -23,15 +23,15 @@ As she stood like that, she began to notice other oddities. The Castle of Friend
 
 "Guys? Anyone, uh, [i]anypony[/i]?" Sunset called, nervously smiling.
 
-Something fishy was going on. She took another wobbly step, then landed back on all fours and sighed in satisfaction. She stubbornly began to make her way across the room, still reeling from the strong effects of thaumic resonance. Her ears rang and her vision wavered, and while being unaccustomed to the body, she bumped with a flank into a huge tower of books, stockpiled right on the floor.
+Something fishy was going on. She took another wobbly step, then landed back on all fours and sighed in satisfaction. She stubbornly began to make her way across the room, still reeling from the after-effects of thaumic resonance. Her ears rang and her vision wavered, and while being unaccustomed to the body, she bumped with a flank into a huge tower of books, stockpiled right on the floor.
 
 "[i]Why? Why are there so many books?[/i]" she internally whinnied in genuine equine terror, watching how that tower collapses onto another one, that one falls into third... Before long, Sunset stood in the midst of complete chaos, looking around with a dumbfounded look.
 
-Now there needs to be someone to bust in and catch her red-handed.
+Now someone needed to bust in and catch her red-handed. Anticipating, Sunset got the creeps.
 
-As if on cue, a spark of teleportation flared, and before Sunset, there was a familiar purple-ish figure with an ignited horn, blinding with its intensity. Sunset squinted her eyes, smiling. Twilight? Ah, no, not her...
+Right on cue, a spark of teleportation flared, and before Sunset, there was a familiar purple-ish figure with an ignited horn, blinding with its intensity. Sunset squinted her eyes, smiling. Twilight? Ah, no, not her...
 
-"Who are you?" Starlight pointed an accusatory hoof at Sunset, dishing out a barrage of questions: "How did you come here? What are you doing here?!"
+"Who are you?" Starlight pointed an accusatory hoof at Sunset, dishing out a barrage of questions, "How did you come here? What are you doing here?!"
 
 "Hey-y, Glim, what's up?" Sunset tensed up, but spoke in upbeat tone, trying not to show any worry. Her snark slipped through anyway: "Jumpy much? It's me, Sunset! Sorry about the mess."
 
@@ -39,7 +39,7 @@ As if on cue, a spark of teleportation flared, and before Sunset, there was a fa
 
 Sunset looked at her dumbfoundedly, then rubbed her temple, frowning. "Okay," she uttered, "I didn't expect that."
 
-Starlight seemed pale and disheveled, like she hadn't slept or eaten well. There was desperation in her unfamiliar small voice—things weren't looking good. "I was asked by Twilight to wait for your arrival," she explained, "Then we were supposed to go to the royal wedding."
+Starlight seemed pale and disheveled, like she hadn't slept or eaten well. There was desperation in her unfamiliarly small voice—things weren't looking good. "I was asked by Twilight to wait for your arrival," she explained, "Then we were supposed to go to the royal wedding."
 
 "She did write me as such," Sunset had left behind the journal she used to communicate with Twilight and already came to regret it. "Starlight, are you sure it is the first time we've met each other?"
 
@@ -49,15 +49,15 @@ Starlight tilted her head curiously and pensively nodded.
 
 Starlight grimaced in response and traced her eyes aside. "I'm not sure about anything," she mumbled. "There's a persistent rumor that changelings struck at Canterlot during festivities, when they were least expected. Guess it's true."
 
-"What, seriously!?" Sunset stood back up.
+"You're serious!?" Sunset stood back up.
 
-"The combat was going on for most of the night," Starlight nodded, "There was an intense light too; I think the whole Equestria saw that. It rumbled like it's going to be an earthquake." Her ears splayed back, "I'm not sure that Equestria even ever had earthquakes... Mostly everyone in Ponyville are staying at their homes now, waiting until we have concrete news about what's going on. Some families had fled. Can't blame them."
+"Seems like fighting was going on for the most of the night," Starlight nodded, "There was an intense light too; I think the whole Equestria saw that. It rumbled like it's going to be an earthquake." Her ears splayed back, "I'm not sure that Equestria even ever [i]had[/i] earthquakes... Mostly everyone in Ponyville are staying at their homes now, waiting until we have concrete news about what's going on. Some ponies had fled... Can't blame them."
 
-"Huh." Sunset mustered. Her mind went blank for a moment as she tried to comprehend all that. "Aren't the changelings on the ponies' side?" She asked uncertainly, "I thought you and Twilight had brokered a truce with their species?"
+"Huh." Sunset mustered. Her mind went blank for a moment as she tried to comprehend all that. "Aren't the changelings on the ponies' side?" She asked uncertainly, "Did they betray us? I thought you and Twilight had brokered a truce with their species."
 
-"Are you sure about that? I've never met them, I [i]think[/i]," Starlight replied, "Hope you aren't one of them, cause' it will just make it all more awkward."
+"I've never met them, I [i]think[/i]," Starlight replied, looking like a confused puppy, "Hope you aren't one of them, cause' it will just make it all more awkward."
 
-Sunset stared for a moment, then cleared her throat. At least in this regard, they were on the same page—she never saw even a single changeling either. "Why did you remain here?" Sunset arched a brow. "All the girls, and who knows who else, are out there, right? They all might've needed your help!"
+For a heartbeat Sunset just stared, then cleared her throat. At least in this regard, they were on the same page—she never saw even a single changeling either. "So what are you doing in here?" Sunset arched a brow. "All the girls, and who knows who else, are still out there, did I catched it right? They all might need your help!"
 
 Starlight gave her a pitiful look, and Sunset felt slightly embarrassed about own accusatory tone. "I wanted to," Starlight mumbled, "but you could come through at any minute. Besides, Twilight [i]is[/i] usually good at handling these types of emergencies."
 
@@ -69,25 +69,27 @@ Starlight gave her a pitiful look, and Sunset felt slightly embarrassed about ow
 
 Starlight smiled, warming up: "Come. Let me show you something."
 
-They went on through the tall passages of the Castle of Friendship, devoid of most light except for the dim sunlight streaming from the elaborate crystal windows. Without Twilight or any ponies, or other creatures for that matter, the whole place gave an abandoned and alien impression. Sunset remembered how cozy it was before. All the purple and lavender colors around were dull now, suppressed to an almost indescernable gray.
+They went on through the tall passages of the Castle of Friendship, devoid of most light except for the dim sunlight streaming from the elaborate crystal windows. All the purple and lavender colors around were dull now, suppressed to an almost indescernable gray.
 
 And that's why, when Starlight walked over to one of the doors, looking just like the rest, and opened it with a push of a hoof, Sunset couldn't contain her amazement.
 
 "Woah," she whispered, "Is this real?"
 
-The small room was filled with various artifacts, mostly unknown to Sunset but invoking images from ancient books and legends. A hidden treasure trove...
+The bright small room was filled with various artifacts, mostly unknown to Sunset but invoking images from ancient books and legends. 
 
-"Since when Princess Twilight became a collector?" She asked in complete awe, walking around all the magical splendor, "Is that the Helm of Shadows? The old Horn of the Everfree? Here's that alicorn amulet... Oh, the Talisman of Mirage? And there, are those all eight legendary artifacts of Mage Meadowbrook?"
+A hidden treasure trove.
+
+"Since when Princess Twilight became a collector?" She asked in awe, wandering the magical splendor, "Is that the Helm of Shadows? The old Horn of the Everfree? Here's that alicorn amulet... Oh, the Talisman of Mirage? And there, are those all eight legendary artifacts of Mage Meadowbrook?"
 
 "All eight indeed," Starlight shrugged, as if it was nothing special. 
 
-"How did all this stuff ended up in here?"
+"How did all this stuff end up in here?"
 
-"How?" Starlight replied in strange, strained voice. She hung head, furrowing brows, "That is a rather... odd question, don't you think?"
+"How?" Starlight replied in a strange, strained voice. She hung head, furrowing brows, "That is a rather... odd question, don't you think?"
 
 "What do you mean?" Sunset flicked her ear, stepping in front of the postament in middle of the room—the centerpiece of the whole gallery. She traced her gaze upwards to [i]what[/i] was on display, and shook her head, not believing own eyes. "And what's [i]this[/i]?"
 
-"Ah." Starlight came to her side, eyeing the treasure, hovering in midair, "It is just the sword, made from shards of the Elements of Harmony. That's what I wanted to show to you."
+"Ah." Starlight came to her side, eyeing the treasure, hovering in midair, "It is just the sword, made from shards of the Elements of Harmony. I wanted to show to you this."
 
 Sunset sat down, her eyes rounded up. The Sword looked more like a [i]tree branch[/i] than a blade. Crooked and obscenely massive, shimmering with inner light, and covered with glistening embossed arcane symbols and engravings, the beautiful thing had no right to exist. "This is ridiculous," Sunset said, puzzled.
 
@@ -121,13 +123,13 @@ Starlight gave her an incredulous look, creasing a brow.
 
 Sunset giggled, feeling how tips of her ears started to burn: "It's true, though! It's so odd... I feel as if I am in a dream, or being fooled."
 
-"Well..." Starlight rubbed her chin, trying to imagine a compelling counterargument and failing, "I feel the same way, can tell you that much... I wanted for you to take a look at the inscription on the blade. Can you tell anything about it?"
+"Well..." Starlight rubbed her chin, obviously trying to imagine a compelling counterargument and failing, "I feel the same way, can tell you that much... I wanted for you to take a look at the inscription on the blade. Can you tell anything about it?"
 
 "Give me a minute." Sunset pressed her forelegs on the edge of postament and stretched out, moving muzzle closer to the weapon, "Who forged it, anyway?"
 
 "I'm not sure. It just appeared, I think," Starlight sounded flabbergasted, as if idea of questioning the origins of the artifact was novel to her.
 
-Sunset glanced at her suspiciously, and then examined the darkened steel of the weapon thoroughly. "[i]What a stupid thing.[/i]" The engravings were easy to discern, but the design didn't bear any fancy pattern. Instead there were just words, running along the surface. "'Ego sum ferrum pacis. Devoto, trahe me contra hostem vitae,''" She slowly read aloud, "And there's something else..." She blinked, and rubbed her eyes.
+Sunset glanced at her suspiciously, and then thoroughly examined the darkened steel of the weapon. "[i]What a stupid thing.[/i]" The engravings were easy to discern, but the design didn't bear any fancy pattern. Instead there were just words, running along the surface. "'Ego sum ferrum pacis. Devoto, trahe me contra hostem vitae,''" She slowly read aloud, "And there's something else..." She blinked, and rubbed her eyes.
 
 "What do you see?" She heard Starlight's voice.
 
@@ -147,11 +149,11 @@ Sunset snorted, entertained by a thought that they are having this conversation 
 
 The pain of backlash ran through her with an intensity of flashing electricity surge, directly into her skull and then down the backbone. Sunset gasped, ceased all attempt at magic, and jerked back: "What was that!?"
 
-"Sorry, I should've warned you!" Starlight turned to her, worriying, "This thing doesn't wants to be touched."
+"Sorry, I should've warned you!" Starlight turned to her, worriying, "This thing doesn't want to be touched."
 
-"I've figured," Sunset winced, holding onto the tingling horn, "You mean to say it has a will of it's own?" 
+"Yeah, I've noticed," Sunset winced, holding onto the tingling horn, "You speak as if it has its own will." 
 
-"Well, it [i]is[/i] made from the Elements of Harmony," Starlight looked at her pathetically, "Who's to say? The girls couldn't lift it too, so it's just hanging there..."
+"Well, it [i]is[/i] made from the Elements of Harmony," Starlight gave a pathetic look, "Who's to say? The girls couldn't lift it too, so it's just hanging there..."
 
 "I see... Did you try to communicate with it?"
 
@@ -163,7 +165,7 @@ The pain of backlash ran through her with an intensity of flashing electricity s
 
 "What is it? Your head hurts?"
 
-Starlight pensively nodded. Something [i]did[/i] affect the memories of the mare, that was certain. Sunset needed to find other girls and discover what condition [i]they[/i] are in... Maybe she can even reach out to Princess Celestia?...
+Starlight pensively nodded. Something [i]did[/i] affect the memories of the mare, that was certain. She could [i]sense[/i] it as some wrongness that is hard to put a finger on... Sunset needed to find other girls and discover what condition [i]they[/i] are in... Maybe she can even reach out to Princess Celestia?...
 
 When she thought about her old mentor, her heart responded with dull pain. In truth, they never really reconciled. They never talked about exactly what happened or how they felt. There was no moment of [i]connection[/i]. It might've sounded selfish, but Sunset still dreaded meeting the ancient alicorn Princess. She seemed so happy without her, and she was always so busy to boot, engrossed with her rulership, surrounded by her friends and returned sister. Their once strong bond had faded, leaving Sunset on her own, and the absence of warmth made her question if their relationship had ever truly mattered.
 
@@ -175,13 +177,13 @@ She traced her eyes aside, trying to decide if the artifacts could aid her in th
 
 "I will be going to Canterlot," she said determined, "You're coming with, Starlight. Come on, lock it up and let's go."
 
-"Well, um..." Starlight smiled nervously, "What if someone breaks in?"
+"What if someone breaks in?" Starlight smiled nervously.
 
-"Who will even [i]do[/i] that? It's [i]Ponyville[/i]."
+"Who will even [i]do[/i] that?" Sunset snorted just like a pony would and breathed a sigh of relief for not being weird this time, " It's [i]Ponyville[/i]!"
 
-"Changelings?" Starlight offered, unsure.
+"Changelings?" Starlight offered, still unsure.
 
-"I doubt it's their priority. How [i]they[/i] would know that all this stuff is in here, anyway?" She pondered aloud, as her gaze fell on something familiar between all the oddities and trinkets around, "Hey, what's this?" 
+"I doubt it's their priority. How [i]they[/i] would know that all this stuff is in here, anyway?" Sunset pondered aloud, as her gaze fell on something familiar between all the oddities and trinkets around, "Hey, what's this?" 
 
 Her horn lit up, levitating a simple leather-bound book, with Celestia's cutie mark emblazoned on the cover.
 
@@ -197,55 +199,199 @@ Sunset wordlessly showed the contents of the book. In an unfamiliar hornwriting,
 
 𒄈 [b][size=1.1em]A[/size][/b]fter the incident with the creepy book, Sunset didn't need to work hard to persuade Starlight to leave the dark and lonely Castle of Friendship.
 
-Honestly, it was pleasing to see such a levelheaded mare. She was taking the action right where it counted, and she quickly began to remind Starlight of Twilight. Starlight wished for this power too, to be free of doubts and appear confident and leading.
+Honestly, it was pleasing to see such a level-headed mare. She was taking action right where it counted, and she quickly began to remind Starlight of Twilight. Starlight wished for this power too—to be free of doubts and genuinely appear confident and leading.
 
-If only it could ease the burden of harboring dark impulses in her heart...
+If only she could ease the burden of harboring dark impulses in her heart...
 
-With their teleportation skills, they were before the city's outer wall only in dozen of minutes or so. Both mares found themselves right before the comparably small crowd, slowly leaving the gates. Starlight craned neck, trying to get a glimpse of any familiar ponies, but all she had seen is tired and scared expressions of citizens. 
+Utilizing their teleportation skills, they arrived at the city's outer wall in a dozen minutes or so. Both mares found themselves right before the comparably small crowd, slowly leaving the gates. Starlight craned her neck, trying to get a glimpse of any familiar ponies, but all she saw were the tired and beaten expressions of citizens.
 
-Starlight still harbored some resentment for the capital of Equestria, this stuck-up city, full of stuck-up ponies born with a silver spoon in their mouths, but she didn't wished for anyone to be actually [i]hurt[/i]. Not anymore, at least. Under the convoy of few members of the guard, ponies were heading toward the colorful train waiting at the station. Watching this procession, she bit inside of her cheek in the contemplation, turned to Sunset, and suddenly asked: "What do you think of the changelings' magic?"
+Starlight still harbored some resentment for the capital of Equestria, this stuck-up city full of stuck-up ponies born with a silver spoon in their mouths, but she didn't wish for anyone to actually be hurt. Not anymore, at least. Under the convoy of a few members of the guard, ponies were heading toward the colorful train waiting at the station. Watching this procession, she bit the inside of her cheek in contemplation, turned to Sunset, and suddenly asked, "What do you think of the changelings' magic?"
 
-"Huh?" Sunset, deep in thought and far more invested into plight of the citizens, reacted with pause: "What about it?"
+"Huh?" Sunset, deep in thought and far more invested in the plight of the citizens, reacted with a pause: "What about it?"
 
-"You think it is something that can be learned?" Starlight kept asking, curious. She quickly catched on that this friend of Twilight can possess some unique insight in the matter. 
+"You think it is something that can be learned?" Starlight kept asking, curious. She quickly realized that this Twilight's friend could possess some unique insight in the matter.
 
-Sunset humphed, "Now that's interesting. You mean the actual shapechanging part?"
+Sunset made a humph: "From them? I'm not so sure. You mean the actual shape-changing part?"
 
-"Their magic can include something more than that?"
+"Their magic possibly includes more than that."
 
-"Of course. I believe that they can manipulate minds or emotions of others at their will. Or at least, their Hive Queen can."
+"Of course. I believe that they can manipulate the minds or emotions of others at will. Or at least, their Hive Queen can."
 
-"Oh." Starlight said in a small voice. Now that was something interesting. She turned to Sunset, completely forgetting about anything else that was going on: "Why would they have such set of abilities?"
+"Oh." Starlight spoke in a small voice. That was something interesting. She turned to Sunset, completely forgetting about anything else that was going on: "Why would they have such a set of abilities?"
 
-"Hm-m?" Sunset blinked, "They just [i]do[/i]? It is their inherent trait, just like the magical aptitude of ponies. You don't see it being discussed at length, right?"
+"Hm-m?" Sunset blinked. "They just [i]do[/i]? It is their inherent trait, just like the magical aptitude of ponies. You don't see it being discussed at length, right?"
 
-Starlight suddenly felt liberated while talking to this mare. She didn't gave any side-eye to her, she didn't [i]judged[/i] her. There never was this constant suspicion that Starlight, while trying to reform, wants the knowledge for some ill-fitting end. Her ears perked up: "Listen, it might sound overly ambitious, but can I hypothesize that spells dispelling charms and enchantments reveal their true forms while they are changed?"
+Starlight suddenly felt liberated while talking to this mare. She didn't give any side-eye to her; she didn't judge her. There was never this constant suspicion that Starlight, while trying to reform, wanted the knowledge for some ill-fitting end. Her ears perked up. "Listen, it might sound overly ambitious, but can I hypothesize that spells dispelling charms and enchantments reveal their true forms while they are changed?"
 
-"I think I can recall that happening," Sunset nodded pensively, but now somewhat engaged, "Why do you ask?"
+"I think I can recall that happening," Sunset nodded pensively, but now somewhat engaged, "why do you ask?"
 
-"Well, the whole concept of completely changing your appearance and physical attributes is [i]preposterous[/i]," Starlight scoffed, "There's always some trickery involved when something like that happens. So what if it's just that? An elaborate illusion directed at the senses of everyone around?"
+"Well, the whole concept of completely changing your appearance and physical attributes is preposterous," Starlight scoffed. "There's always some trickery involved when something like that happens. So what if it's just that? An elaborate illusion directed at the senses of everyone around?"
 
 Sunset blinked, staring. Then she slowly arched a brow: "A perception trick?..."
 
-"Exactly, Sunset. Do you think the changelings actually [i]change[/i] their bodies? Or do they just [i]illude[/i] it to the eyes of everypony else?... If it's some sort of elaborate illusion, then it would make sense that there is no set [i]real[/i] appearance of a changeling. But that begs the question that if that's the case, why do they require love to feed off of? Are they even real creatures themselves? Is it all just some... scheme?"
+"Exactly, Sunset. Do you think the changelings actually change their bodies? Or do they just [i]illude[/i] it to the eyes of everyone else?... If it's some sort of elaborate illusion, then it would make sense that there is no set [i]real[/i] appearance of a changeling. But that begs the question: if that's the case, why do they require love to feed off of? Are they even real creatures themselves? Is it all just some scheme?"
 
-"I get what you're saying," Sunset slowly returned, "But I can guarantee you that changelings do, factually, exist. While I do not see obvious connotation between their abilities, you can probably find a changeling and ask all these questions to them by yourself."
+"I get what you're saying," Sunset slowly returned, "but I can guarantee you that changelings do, factually, exist. While I do not see an obvious connotation in their abilities, you can probably find a changeling and ask all these questions to them by yourself."
 
-"Ah, but that raises another question!" Starlight lifted a hoof, smiling, "Why do you think that [i]they[/i] know how their magic works? We still have not much insight into the nature of our own abilities, other than that they can be tied to emotions and require extensive practice, and what could be said about some weird backwater bugs?"
+"Ah, but that raises another question!" Starlight lifted a hoof, smiling, "Why do you think that [i]they[/i] know how their magic works? We still have not much insight into the nature of our own abilities, other than that they can be tied to emotions and require extensive practice to control, and what could be said about some weird backwater bugs?"
 
-"Starlight, I will be frank: you are losing me on this one. We have much more pressing matters to be concerned with."
+"Starlight, let me be frank: you are losing me on this one. We have much more pressing matters to be concerned with."
 
-Starlight sighed. After all, speaking to Twilight would be much more fun in this regard, when she wasn't busy with her... friendship problems, and friendship lessons. "Guess you're right..." 
+Starlight sighed. After all, speaking to Twilight about this would've been much more fun, given that she wasn't busy at the time with her... friendship problems and friendship lessons. "Guess you're right..."
 
-As she kept remembering how 
+Twilight... What is she doing right now? Why hadn't she showed up yet?... Starlight didn't want to think about it too hard. After the whole night spent in complete uncertainty, her thoughts were too grim.
+
+"Yeah, I think I know what we'll do right now. Come on," Sunset suddenly ignited her horn, and before Starlight could react, she felt a familiar jerking of the whole body. Bewildered, she landed with widely placed hooves beside her companion right on top of the wall.
+
+"Rude," she grumbled quietly, hoping that her coat isn't steaming. What, Sunset didn't heard that you never teleport others without permission? 
+
+"Who're you? Name yourselves!" the shout distracted her. Right before them was a armored stallion with a ridicolously huge mustache. He whirled a longspear in his hooves and pointed at Sunset, while a pair of his fellow soldiers were just standing aside, gawking.
+
+"[i]Ah, he must be the captain of the guard,[/i]" Starlight recognized, eyeing them. Two others seemed to be of considerably lesser stature.
+
+"Good day, good sir. Wouldn't you mind explain the situation to us?" Sunset cutely waved her hoof, trying to be pleasant and act natural at the same time.
+
+"The city is under curfew and barred from entry. Are you two locals?"
+
+"Oh, I am sort of a migrant, alright," the unicorn giggled, "My name is Sunset Shimmer, she is Starlight Glimmer. We both are students, friends, and followers of the Princess Twilight Sparkle. Have you heard of us?"
+
+Starlight stared at her wide-eyed. They had much in common, it seemed...
+
+The guard captain's stache twitched in contempt. He didn't lower the weapon. "As I said, no one is coming into this city. Even if you are who you say, this demand came from Her Highness, the Princess Celestia herself."
+
+"Hmph! So it's like [i]that[/i], huh?" Sunset ignited her horn. The captain tensed up. The mare continued with an inscrutable smile on her muzzle: "Very well then. Starlight, take it from here!"
+
+"What!?" Starlight barked, but her mind worked too fast even for her own liking, and old habits kicked in immediately: "Uh, mister guard, good sir, do you want to spare some time and talk about friendship? Err, about the [i]Magic[/i] of Friendship?"
+
+She pulled off the most inviting smile she could muster. The captain's frown deepened.
+
+"Citizen, cease your parlor tricks and unsolicited magics at once!" he growled. Starlight noted that he is no unicorn, so there's might be some prejudice on display. Figures.
+
+"Oh, but the Magic of Friendship is universal!" She smiled sleazily, gently moving away the tip of the spear, which briefly looked directly at her, "If you don't mind... It is a quality new way of looking at life, full of [i]positivity[/i] and [i]light[/i]! I mean, just look at reality that came upon us so far, without its presence in life of every pony? Look at this, um... ruthless war, and hatred between races," she pointed at bleak cityscape, which definitely looked like it was under some siege before, alright.
+
+"Citizen, if you continue like that, I will be [i]forced[/i] to apprehend you," the captain gravely replied, but didn't resort to violence. Starlight took it as a good sign.
+
+She eagerly kept going: "Just think about it! Should you invite the Magic of Friendship into your worldview, you will meet countless ponies, whom you would never have encountered otherwise. You'll never know what sort of wonderful talents they may have in store! You'll be positively [i]amazed[/i] with the experiences you'll create together, and you'll [i]learn[/i] something from each other as well!"
+
+One of the guards asked: "So the magic of friendship is when you get out there and make as many friends as possible? That's it?"
+
+"Of course!" Starlight exclaimed, "It is truly a magical experience! It allows you to have the power and knowledge to make a... [i]big[/i] difference in the world! A change for the better! And... and it also allows you to accept not only your differences... but even your flaws! Everyone is flawed, you know. But, if you let that stop you from making friends with others, you'll be living a very miserable life... Friendship is one of the most important life lessons you'll ever learn... Don't be selfish! Embrace everyone! Let's be friends!"
+
+With a huge smile, praying internally that they won't recognize it as a fake, she outstretched her forelegs welcomingly. The guards paused, sharing concerned glances. Starlight could see that, at least partially, but her ploy worked: the captain's stache deflated a bit. The ponies are a good bunch, after all... "Mare'm," he said with a sigh, "I understand that you might have noble intentions, but situation is glum enough to be strict about it. Canterlot suffered from the changeling attack, and they still might be roaming the streets even as we speak. Please, for your own safety, suspend all planned activities here. Situation [i]is[/i] under control."
+
+Sunset stepped in, flashing a little coy smirk, and grabbed Starlight's shoulder: "Sorry, we can't suspend nothing! I've got I wanted, let's go!"
+
+"What-" Starlight began to reply.
+
+In a flash of unprompted teleportation magic, the scenery changed, showing scorched alleyway a few hundred meters deeper into the city.
+
+"-were-"
+
+From the vantage point of the roof, Starlight saw the small square, with same signs of battle. She noticed a pile of dark bodies.
+
+"-what-"
+
+Before her was a tilted torn placard with depicted Celestia and Luna, framed by a red outline of heart and cheerful shapes of flowers. Someone wrote with big green letters over Princessess' smiling muzzles: 'A BIG FAT LIE'.
+
+"-wait-"
+
+They were inside of someone's house now. She noticed a broken window, a dirty floor under her hooves. There was a brief ear-piercing shriek, and some startled mare began to utter, shielding a crib: "No, please, dont—"
+
+"-no, we-"
+
+They were in a cramped back alley. Starlight saw glistening blue eyes of some predatory creature. It jerked back in fright, and she done so too, involuntary. She caught a whiff of suffocating stench in the air.
+
+"-Sunset!-"
+
+With another flash, they found themselves the huge brightly colored roof of a building, located in the middle of a fenced area, filled with greenery. "[i]Canterlotian Equus Hospital[/i]," Starlight recognized, discerning several medical wings, and a familiar sign depicting a horseshoe with the mortar and pestle at the center of it.
+
+Starlight turned to Sunset, pouting. Her companion grinned: "Was I too rough with teleportation?"
+
+"No, not at all. I didn't expect that I would need to talk someone's ear off, that's all," Starlight grimaced.
+
+"Sorry! I never was good with following orders from Celestia, anyway." Sunset glanced at her strangely, perceptively, "But I think your heart wasn't in it back there."
+
+"Oh. Um." Starlight shifted her eyes with a plastered smile, "I am [i]trying[/i] to believe in it, it's just hard, you know? Especially now, when everything is so on the line..." her weak voice trailed off.
+
+"You will do just fine, Starlight." Sunset patted her shoulder confidently, "Yes, it is hard, but I am sure that Twilight believes in you. And she never was a bad judge of character," she sighed. "She gave me a chance just as the other girls in my world did, and everything is better for me now. I've never been so fulfilled before..."
+
+"I understand..." Starlight replied in a broken voice, thinking about how her life had changed, "There is something really [i]nice[/i] about those six, right? Like there's hope."
+
+Sunset grinned widely, with sparkling eyes, "Yes. [i]Yes[/i]! Straight from the horse's mouth!"
+
+Starlight nodded pensively. She was given... so many chances. She felt... accepted. She blinked away incoming tears, and quietly pleaded: "We should go, I guess..." She looked around, "What are we doing here, again?"
+
+"I've traced the magical signatures of other Element Bearers to this place. They should be in the ward right underneath us," Sunset placed her hoof firmly down, emphasizing own words, "so let's go meet them if you're ready.'"
+
+"Uh-huh... Wait, wait," Starlight blinked, "'Others', you say? I'm no Bearer, does this make you're the one?
+
+Sunset shrugged: "Eh, kind of. I don't think I was recognized as such at this side of the mirror. "
+
+проваливаются в комнату с дэш
 
 
-"Где ваш капитан?"
-"На стене."
-Телепортируются на стену
+[center]═════════════════════════════ 𒀭𒀭𒀭 ═════════════════════════════[/center]
 
+𒄈 [b][size=1.1em]"[i]T[/size][/b]hat's right, it's just not real,[/i]" she found bliss in the thought, "[i]Real for them of course, but it can't be real for me. I've traveled to the wrong Equestria. It's simple as that.[/i]" 
+
+The large ward hosted only one properly occupied bed by Rainbow Dash, who remained pale and still. Rarity was sitting on the next one over, maintaining the poise of a lady with neatly tucked hooves underneath. A familiar, small, earnest smile was gracing her muzzle, a tad sardonic this time around, as if on her mind was a sad and poignant joke about the current state of affairs, and the punchline to it was everybody involved.
+
+In hindsight, it was so [i]weird[/i] to see nearly identical versions of your friends who don't know jack about you. Sunset somehow made it this far, mostly not knowing the experience, and now she was just trying to fit in. It had a small benefit: it helped her remain distracted for a while.
+
+"Yeah," in frail voice, she uttered maybe for the hundredth time, and then asked: "So how Spike is taking this?"
+
+"He is with their parents," Rarity's voice was calm and lovely, "They need someone with them right now."
+
+"Yeah..."
+
+Starlight's cup cling-clanged on the chipped saucer. The self-proclaimed reforming villain didn't knew where to place her forelegs, so she constantly shifted them, while holding a distant stare at far wall.
+
+Rarity asked her innocently, like she was following etiquette of a benign host: "More tea, darling?"
+
+Starlight slowly shook head in return. "It's all my fault," she whispered, "If I didn't stay back..."
+
+
+
+"So what is your plan?" Sunset asked, shifting gaze between everyone in the room.
+
+Applejack, who occupied the third bed in the row, looked grimly from beneath the hat, sitting firtmly on her head. She tsked: ""
+
+Rarity glanced at her with a weary, pathetic look. She didn't even bothered to wipe the mascara that dripped down with the sweat and, as Sunset believed, tears. Her beautiful dress worn for the celebration became rags overnight, and all in all, it could've added even more dramatic flair to the situation, which Rarity surely was aware of.
+
+
+
+galt - _to grasp or seize suddenly_. to defer; postpone. to introduce; to send, put, or let in
+
+inscrutability - непостижимость
+
+Перед тем как уходит к Старсвирлу
+Флаттершай, до этого все время была тихой, говорит с Сансет
+
+
+
+
+Sunset felt her own heart pounding. 
 
 Sunset's features creased into a determined frown.
+
+
+"Sunset!" 
+
+"Flutters?" She smiled, "What's up?"
+
+The pegasus with slightly reddened cheeks from embarassment. "Please, don't be too hard on yourself."
+
+смена пова 
+девочки рассказывают за кадром новости
+чашка дрожит в копыте старлайт
+дэш в отключке, прибегает пинки, эджей помогает, рэрити рассказывает. флаттершай приходит тоже. потом заваливается старсвирл. "Че за дела, я ждал вас у ворот"
+Сцена с мелом
+Целестия запретила всем ходить по улице или покидать территорию госпиталя
+
+
+"I'm no unicorn, so no, I do not dabble," 
+
+
 
 
 
@@ -556,7 +702,7 @@ The old wizard nodded, "That is the discussion I wanted to convene before your i
 
 "Of any kind. [i]Nothingness.[/i]" He repeated forcefully, "They do not have constellations anymore, and I do not mean that I cannot recognize any of them. They lack of any kind of order. They became alien, completely unknown to me."
 
-The implications were there, but it still was hard to grasp. "So, what does it means to us?" Sunset relented.
+The implications were there, but it still was hard to grasp. "So, what does it means for us?" Sunset relented.
 
 "Glad you began asking the right questions," Starswirl answered with bile in his voice, stroking his beard, "It means that we cannot project the current of events that will transpire. To this day, they were... sparingly premeditated until the certain moment."
 
@@ -568,27 +714,27 @@ Starswirl frowned, "Elaborate. What led you to this conclusion?"
 
 "Child, you saw only what you needed to see," Starswirl looked like he bit on a lemon. Sunset realized that he hoped to weasel out from having this conversation in the first place, and glanced disparagingly. This sly old raccoon... "It isn't how the time travel works. It doesn't signify that events that transpired were any less [i]real[/i] for you and Twilight, but I can assure you, they weren't breaking the reality in the way that you percieved."
 
-"So what, was I [i]meant[/i] to lose to Twilight and her special friends?" in Starlight's voice there was tension, "And all that happened before, with me and the village, is it just part of a plan too? Did it even mattered what I've felt back then? What I went through?"
+"So what, was I [i]meant[/i] to lose to Twilight and her special friends?" in Starlight's voice there was tension, "And all that happened before, with me and the village, is it just part of a plan too? Did it even mattered what I've felt back then? What I went through!?"
 
-Sunset decided that she needs to step in. She placed a hoof on Starlight's shoulder, and saw hurt in her eyes. "Look, I do not know much about all this stuff, but it [i]did[/i] led you in a better place than you was in before, right?"
+Sunset decided that she needs to step in. She placed a hoof on Starlight's shoulder, and saw hurt in her eyes. "Look, I never dug into what was in your past, but what happened [i]did[/i] led you in a better place than you was in before, right?"
 
-"I guess so," she replied in a small voice, and sniffed wetly.
+Starlight's corner of the lips trembled, like she was holding back tears. "I guess so," she breathed out, and sniffed wetly.
 
 "Back where I came from, you've become the princip—the [i]headmare[/i] of the Friendship School," Sunset said proudly, "You with Sunburst as your vice-headmare made a great team, helping a lot of students to find their way."
 
-"A Friendship School, huh?" Starlight tried to smile, "I think Twilight would've absolutely loved it. And me and Sunburst, we were this close, working on something together? That seems unbelivable..."
+"A Friendship School, huh?" Starlight tried to smile, "Twilight would've absolutely loved the idea... And me and Sunburst, we were this close, working on something together? That seems unbelivable..."
 
-Starswirl scoffed, stroking his beard, "Isn't that peculiar... Seems like a complete waste of resources." 
+Starswirl scoffed, stroking his beard, "A School... Isn't that peculiar... Seems like a complete waste of resources." 
 
-"Uh, if I'm not mistaken, you were enrolled in the School too," Sunset retorted, "Twilight was talking about how [i]even you[/i] were making strides in understanding Friendship. I'm sure "
+"Hey, old man, if I'm not mistaken, you were enrolled in the School too!" Sunset retorted, "Twilight was talking about how [i]even you[/i] were making strides in understanding Friendship!"
 
 "Sunset," Starlight suddenly asked, "what if things that you've experienced were some sort of magic construct too?"
 
 "What?" Sunset blinked, taken aback by the suggestion.
 
-"You seem to be from some alternate future, am I correct? I've seen something similar in my own time, and [i]he[/i]," Starlight nodded at old mage, "just said that this thing can be fabricated."
+"Your alternate universe, as you called it, seems to be some alternate future, am I correct? I've seen similar things on my own, and [i]he[/i]," Starlight nodded at old mage, "just said it all can be fabricated."
 
-"I didn't said [i]that[/i]!" the old mage fervently defended himself, "And what's going on with [i]her[/i] is a completely different precedent. She isn't supposed to [i]be[/i] here! It's all that wedding and its distortion, it's that fulcrum event, that forced the whole paradigm to be changed!"
+"I didn't said [i]that[/i]!" the old mage fervently defended himself, "And what's going on with [i]her[/i] is a completely different magical precedent. She isn't supposed to even [i]be[/i] here! It's all that wedding and its distortion, it's that fulcrum event, that forced the whole paradigm to be changed!"
 
 "A what now?" Sunset raised her ears curiously, "You mean everything changed, like with the pattern of the stars?"
 

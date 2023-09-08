@@ -1,5 +1,11 @@
 "How much emotions and feelings in there, under your pristine white skin... How much [b]fire[/b]..."
 
+
+I wonder, what it is about you and your docile, servile nature... It pisses me off, Celestia. It really is. Had you ever had fun?
+
+
+I can't save them.
+
 "It will be a long day."
 
 She levitated a flower and adorned peytral with it.

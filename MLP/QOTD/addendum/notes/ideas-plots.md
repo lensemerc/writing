@@ -13,6 +13,14 @@ kindred spirit
 
 Целестия хочет расширить Эквестрию и вобрать в неё всех пони, со всеми маленькими нациями
 
+1. ### _[_17:36_]_Forcalor_:_ 
+    
+    Now I wanna write fic about Trixie but with allusions to the movie 'The Prestige'
+    
+2. ### _[_17:36_]_Forcalor_:_ 
+    
+    And I might do exactly that
+
 # Fate/Zero 2nd Season (Dub)
 второй эпизод
 призывает Эскалибур. Diyng wish of all soldier slain in battle

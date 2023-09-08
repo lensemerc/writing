@@ -818,7 +818,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "MLP/QOTD/main/Season 1/Warmth of the Stars.md",
+                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/14+ The looking-glass.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -835,7 +835,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "MLP/QOTD/main/Season 1/Warmth of the Stars.md",
+                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/14+ The looking-glass.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -858,7 +858,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "MLP/QOTD/main/Season 1/Warmth of the Stars.md"
+                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/14+ The looking-glass.md"
               }
             }
           }
@@ -866,7 +866,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 304.5
+    "width": 306.5
   },
   "left-ribbon": {
     "hiddenItems": {
@@ -880,12 +880,22 @@
       "obsidian-textgenerator-plugin:Text Generator: Templates Packages Manager": false
     }
   },
-  "active": "f74d24b073104991",
+  "active": "00f6fc24781f793d",
   "lastOpenFiles": [
+    "MLP/QOTD/addendum/notes/general.md",
+    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/14+ The looking-glass.md",
+    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/13 The love, shining through.md",
+    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/15+ Far above.md",
+    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/16+ Her jaws.md",
+    "MLP/QOTD/addendum/notes/ideas-plots.md",
+    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/17+ Catharsis.md",
+    "MLP/QOTD/main/Season 2/Creatures of the Dark - Part 2/03+ Luna.md",
+    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/Celestia's Lament notes.md",
+    "MLP/QOTD/addendum/chars/celestia.md",
+    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/19+ epilogue 2.md",
+    "MLP/QOTD/main/Season 1/Warmth of the Stars.md",
     "MLP/QOTD/text success",
     "MLP/QOTD/main/Season 1/in work/The Conqueror King.md",
-    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/14+ The looking-glass.md",
-    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/Celestia's Lament notes.md",
     "MLP/QOTD/addendum/chars/chrysalis.md",
     "MLP/QOTD/addendum/notes/Season 2/chars for crystal empire.md",
     "MLP/QOTD/addendum/chars/celaeno.md",
@@ -899,17 +909,8 @@
     "MLP/QOTD/addendum/chars/storm king.md",
     "MLP/legacy/COTD uwriter/заметки, таймлайн.md",
     "MLP/legacy/COTD uwriter/для котд 2.md",
-    "MLP/legacy/COTD uwriter/recap 3.md",
-    "MLP/legacy/COTD uwriter/recap 2.md",
-    "MLP/legacy/COTD uwriter/recap (screenplay).md",
-    "MLP/legacy/COTD uwriter/for part 2.md",
-    "MLP/legacy/COTD uwriter/Untitled 1.md",
-    "MLP/legacy/COTD uwriter/Untitled.md",
-    "MLP/legacy/COTD uwriter/unt.md",
-    "MLP/legacy/COTD uwriter/after wedding.md",
     "canterlot_city_by_plainoasis_dbjfyyp-fullview-2690964827.jpg",
     "MLP/legacy/COTD uwriter",
-    "[.md",
     "MLP/legacy",
     "MLP/QOTD/addendum/theater of war/griffon kingdom",
     "Pasted image 20230824230257.png",
@@ -921,7 +922,6 @@
     "MLP/QOTD/main/Season 3/Triumequinate",
     "MLP/QOTD/addendum/theater of war/other ponies nations/island of thrace",
     "MLP/QOTD/addendum/races/changelings/'reformed'/Untitled",
-    "MLP/QOTD/addendum/races/changelings/'reformed'",
     "Pasted image 20230715184948.png"
   ]
 }
