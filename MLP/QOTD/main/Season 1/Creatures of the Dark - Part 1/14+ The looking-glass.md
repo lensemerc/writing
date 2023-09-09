@@ -37,7 +37,7 @@ Right on cue, a spark of teleportation flared, and before Sunset, there was a fa
 
 "Sunset Shimmer? From the other universe?" The mare's voice softened as she surveyed the situation. Her blinding hornlight died down as well. "Uh... I am pleased to finally meet you, I guess." In a total whiplash, she smiled sheepishly, "Wish the circumstances were better... My name is Starlight Glimmer."
 
-Sunset looked at her dumbfoundedly, then rubbed her temple, frowning. "Okay," she uttered, "I didn't expect that."
+Sunset looked at Starlight thoroughly dumbfounded, then rubbed her temple, frowning. "Okay," she uttered, "I didn't expect that."
 
 Starlight seemed pale and disheveled, like she hadn't slept or eaten well. There was desperation in her unfamiliarly small voice—things weren't looking good. "I was asked by Twilight to wait for your arrival," she explained, "Then we were supposed to go to the royal wedding."
 
