@@ -1,6 +1,6 @@
 [
-  "obsidian-git",
   "obsidian-dictionary-plugin",
   "obsidian-discordrpc",
-  "better-word-count"
+  "better-word-count",
+  "obsidian-git"
 ]
