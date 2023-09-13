@@ -21,11 +21,16 @@ She levitated a flower and adorned peytral with it.
 
 hateful zeal
 
+coquettishly
+
 
 
 Chrysalis is narcissist
 
 "I did sample you, didn't I."
+
+
+A predatory gleam in her eyes. A thick saliva trickles down her chin,
 
 
 
@@ -56,7 +61,9 @@ Celestia was unmoving, not betraying with even a single muscle her inner state o
 
 "But I do not seek to amend anything, demigoddess..." Chrysalis grinned, "Let's say it is but a [b]tribute[/b]... Maybe you're just more into mares, with all that longing for your little sister?... Or maybe in your heart of hearts you want [b]all[/b] of your little ponies to worship you more intimately, indiscriminately?..."
 
-Strange acute nature of the shapeshifting beast could led it to latch on every movement that could speak volumes of sheer contempt, rising in the alicorn Princess with every word. Seemingly, Chrysalis was enjoying it nonetheless. Lack of outburst was a reaction enough for her, and so she kept talking slowly, with happy green eyes: "What, not even them, my infallible demigoddess? Maybe you would want to indulge into something more innocent? I can make anything happen, and we could keep it as our personal secret. So, how about small precious colts--"
+Strange acute nature of the shapeshifting beast could led it to latch on every movement that could speak volumes of sheer contempt, rising in the alicorn Princess with every word. Seemingly, Chrysalis was enjoying it nonetheless. 
+
+Lack of outburst was a reaction enough for her, and so she kept talking slowly, with happy green eyes: "What, not even them, my infallible demigoddess? Maybe you would want to indulge into something more innocent? I can make anything happen, and we could keep it as our personal secret. So, how about small precious colts—"
 
 "How [i]dare[/i] you presume something like [i]that[/i] about me, and disgrace me with your presence?" Celestia stopped holding back. She took a step, her great wings flared. "[i]Get out of my sight,[/i] you [i]mongrel[/i]."
 

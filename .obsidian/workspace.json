@@ -750,9 +750,33 @@
                 "source": false
               }
             }
+          },
+          {
+            "id": "c909ae304e937185",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/14+ The looking-glass.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "9625228330607b5f",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/14+ The looking-glass.md",
+                "mode": "source",
+                "source": false
+              }
+            }
           }
         ],
-        "currentTab": 61
+        "currentTab": 63
       }
     ],
     "direction": "vertical"
@@ -861,6 +885,16 @@
                 "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/14+ The looking-glass.md"
               }
             }
+          },
+          {
+            "id": "85217bd30ca23c20",
+            "type": "leaf",
+            "state": {
+              "type": "all-properties",
+              "state": {
+                "sortOrder": "frequency"
+              }
+            }
           }
         ]
       }
@@ -878,35 +912,35 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "00f6fc24781f793d",
+  "active": "9625228330607b5f",
   "lastOpenFiles": [
-    "MLP/QOTD/addendum/notes/general.md",
-    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/14+ The looking-glass.md",
-    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/13 The love, shining through.md",
     "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/15+ Far above.md",
+    "MLP/QOTD/addendum/theater of war/equestria/Canterlot (Capital).md",
+    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/14+ The looking-glass.md",
     "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/16+ Her jaws.md",
-    "MLP/QOTD/addendum/notes/ideas-plots.md",
     "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/17+ Catharsis.md",
+    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/18+ epilogue.md",
+    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/19+ epilogue 2.md",
+    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/13 The love, shining through.md",
+    "MLP/QOTD/main/Season 1/in work/The Conqueror King.md",
+    "MLP/QOTD/main/Season 1/Here lies Princess Amore.md",
+    "MLP/QOTD/main/Season 1/in work/The Hand of Discord.md",
+    "MLP/QOTD/addendum/theater of war/equestria/Everfree Forest.md",
+    "MLP/QOTD/addendum/theater of war/equestria/Hoovesville.md",
+    "MLP/QOTD/addendum/theater of war/equestria/Canterlow (Canterlot Undercity).md",
+    "MLP/QOTD/addendum/theater of war/crystal empire/City of Spire (Capital).md",
+    "MLP/QOTD/addendum/notes/general.md",
+    "MLP/QOTD/addendum/notes/ideas-plots.md",
     "MLP/QOTD/main/Season 2/Creatures of the Dark - Part 2/03+ Luna.md",
     "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/Celestia's Lament notes.md",
     "MLP/QOTD/addendum/chars/celestia.md",
-    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/19+ epilogue 2.md",
     "MLP/QOTD/main/Season 1/Warmth of the Stars.md",
     "MLP/QOTD/text success",
-    "MLP/QOTD/main/Season 1/in work/The Conqueror King.md",
     "MLP/QOTD/addendum/chars/chrysalis.md",
     "MLP/QOTD/addendum/notes/Season 2/chars for crystal empire.md",
     "MLP/QOTD/addendum/chars/celaeno.md",
     "MLP/QOTD/addendum/chars/saint valiant.md",
     "MLP/QOTD/addendum/chars/shorn page.md",
-    "MLP/QOTD/addendum/chars/starl.md",
-    "MLP/QOTD/addendum/chars/cadance.md",
-    "MLP/QOTD/main/Season 2/in work/Noir Las Pegasus.md",
-    "MLP/QOTD/addendum/notes/Season 2/c n n m.md",
-    "MLP/QOTD/addendum/chars/starlight.md",
-    "MLP/QOTD/addendum/chars/storm king.md",
-    "MLP/legacy/COTD uwriter/заметки, таймлайн.md",
-    "MLP/legacy/COTD uwriter/для котд 2.md",
     "canterlot_city_by_plainoasis_dbjfyyp-fullview-2690964827.jpg",
     "MLP/legacy/COTD uwriter",
     "MLP/legacy",

@@ -16,6 +16,11 @@ Chrysalis locked forelegs on the alicorn's neck, pulling herself closer, pushing
 
 ""
 
+Kiss my on my hoof and pledge your loyalty to me
+
+
+Knees buckle from peer preshure
+
 
 "Do you remember how I humiliated and destroyed you at the wedding of your niece, in front of all your pesky subjects? How I cast down the myth of infallible Sun, and shown them that you're mortal, that you too can bleed and suffer... That even **you** have limits... Even Celestia **herself**..." She growled, keeping going on and licking more feverishly by the second, "Tonight I will do it all over again, my Princess... I will defeat you!"
 
@@ -79,7 +84,9 @@ Such fervor... она шипит, расползаясь червями, ско�
 
 "I do not seek to suffer, so my emotions must be cast aside."
 
-"You are a liar, Chrysalis. You are all emotions. You said so yourself."
+"You are a liar, Chrysalis. You are all emotions. You said so yourself. Suffering is inevitable even for someone like you."
+
+Chrysalis stopped, and exhaled. Her eyes flared like burning embers, but voice remained cold, full of suppressed rage: "...I hate you."
 
 
 Преследует Королеву, попадает в паучью паутину, выжигает все вокруг, включая пауков Зрачки Кризалис сужаются когда они сталкиваются Она превращается в дракона, они борятся пламенем. Целестия метает меч в её глотку, призывает другой, пронзает её грудь. Кризалис падает, перевоплощаясь. Когда она под Целестией, пинает её в живот. You dare!
