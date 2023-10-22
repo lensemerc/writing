@@ -1,5 +1,11 @@
+The Griffonheart King
+
 https://www.youtube.com/watch?v=cAZb67igb4o
 Для референса
+
+[https://www.instagram.com/p/Cv5Iwz7I8jl/](https://www.instagram.com/p/Cv5Iwz7I8jl/ "https://www.instagram.com/p/Cv5Iwz7I8jl/")
+Посм. можно ли это использовать
+![[Pasted image 20230915001752.png]]
 
 Arturia, the idealistic King of Chivalry, shares Gilgamesh's belief that a king is not human - but unlike him, that this not because he is superior to them but because he is a different form of existence, an archetype, an ideal to be held in the name of the kingdom even at the cost of a single person's humanity. But that very same belief puts her at odds with Iskander: to Arturia, being an ideal necessarily means not allowing oneself to enjoy life as a person. As the king of Britain, Arturia became an incarnation of her people's belief in such lofty concepts as courage and justice, but she never lived among them. Gilgamesh, as was mentioned above, agrees with Arturia about the king being above his people - but for the opposite reason. Gilgamesh would lead as a god-king. He believes himself to be above his people (or, indeed, any and every people) in the sense that he believed them all inferior to him. He would never deny himself pleasure in the service of a concept and thus shares Iskander's notion that the king should "laugh louder, drink more, and hold grudges longer" than any man. Of course, while Iskander believes this should be the case because the king is meant to inspire his people to dream, Gilgamesh is simply an arrogant sociopath. Finally, there is Iskander himself: he shares Arturia's ideal that the king is not superior to his people - he believes that he should be first among them but a brother nevertheless - but he cannot agree with her that he should give away his humanity for this because his whole philosophy depends on him being "more human than human". In that sense, he agrees with Gilgamesh's path of hedonism but cannot come to agree with his arrogant reasoning (that the king deserves everything, including to stomp and spit all over his kingdom if it amuses him), putting them at odds. The Grail Dialogue may have been doomed to failure - but it was guaranteed to earn its participants' respect for each other and teach them about themselves.
 

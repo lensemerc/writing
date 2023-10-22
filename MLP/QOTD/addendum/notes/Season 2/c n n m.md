@@ -2,9 +2,95 @@
 Существо с лицом матери укрыло её одеялом, как в детстве. Склоняясь, касаясь губами лба, потом обнимая и бережно прислоняя поверх обнаженной груди с светлым сосцом, существо тихо шептало:
 - После сражений наступает ночь, в которой окровавленная луна превращается в алое солнце. Это знамение новой вехи, требование радикальных перемен, ведь это значит что люди осквернили рай: мир вокруг себя.
 
+When the fighting dies down, the quiet darkness comes, and the bloodied moon shines like the bright red sun. It heralds the demand for drastic change since it means that we have defiled our paradise—the very heavenly land that surrounds us.
+
+Now close your eyes and watch.
+
+Череп! 
+Мудрость глядит из зияющих впадин глазных, Тихо гниющая лобная кость говорит без тумана: Нет наслаждения правдой в волненьях пустых, Нет красоты и ума вдохновений в пожаре обмана. Ряд обнажённых зубов, искривлённых тоской, Грустно смеётся над тем, что мы славим и нагло позорим... Избранных эта насмешка зовёт на покой Без упоения призрачным счастьем, иль видимым горем... Правда - в недвижном одном замираньи, в гниеньи одном! Тайна - нирвана; получит блаженство в ней ум безнадёжно-бессильный... Жизнь - есть святое затишье, покрытое сном... Жизнь - это мирно и тихо гниющий от света могильный Череп.
+
 - Хочешь увидеть правду о себе? Посмотри в зеркало. Или в отражение на куске льда.
 
 - Что бы ты сделала, если бы встретилась со своим двойником?
+
+Перед этим говорит с Каданс и отправляется на встречу с Космик Консулом
+
+Потом появляется, Луна под её контролем. Они говорят синхронно
+
+В мире Найтмар мун луна постоянно закрывает солнце
+
+Целестия убивает космик консил ради Луны
+Луна объявляет пытается сместить Целестию опять, и тогда она
+They tried to muzzle you, Sister.
+Зачаровывает её сама, таким образом Луна появляется на саммер сан селебрэйшен
+
+They tried to muzzle her, Starswirl. The Cosmic Council. What did you do? I got rid of them. It's just as I thought. You were corrupted long time ago. No. They just tried to muzzle her. That's all.
+
+
+Луне нужны помощники для работы над снами
+Сомбра порождение Луны?
+
+
+"""
+Обыграть использование снов
+
+I mean like nightmare moon wins Twi escapes but she is gotten in her dreams Or what a society where you are monitored via dreams would be like Or Luna uses dreams to find where an enemy army is They purposely sleep for short periods to avoid having dreams Like 3 hours every 12
+
+The whole business of Nightmare Moon using her dream powers against her opponents, whether before, during, or after her conquest of Equestria, is such a HUGE thing. I've thought about it occasionally myself, but that's mostly just because it has SO MUCH POTENTIAL to be developed in so many different ways.
+
+1. ### _[_22:53_]_Farcalor (arching the dark arc)_:_ 
+    
+    In the world where Luna engages in warfare, enemy can sever their connection with the dreamrealm, losing some part of their soul in the process
+    
+2. ### _[_22:54_]_Farcalor (arching the dark arc)_:_ 
+    
+    I've toyed with the idea, its interesting to explore
+    ### 22:54_]_Farcalor (arching the dark arc)_:_ 
+
+(by that I mean, I plan to write it in sometime)
+
+"""
+
+Каданс беспокоится о Твайлайт. Целестия успокаивает её.
+С точки зрения НММ и Целестии
+
+"I know you've said that ponies don't interest you, but I'm **sure** that even you would adore the sweet and simple ponies and their silly little traditions." *She whispered.*
+
+
+
+The Balance did not need them anyway. Soon, something new, something better will come! The ponies.. I am sure that you will love them. 
+
+You left me gestating in the Moon for hundreds of years!! What did you expect? That you will just kiss me on a cheek and it all will go away? All who I knew are dead and gone!
+
+No... You still... You still have me...
+
+Oh Celestia, my foolish Sister, don't you understand? I despise you. Forgiveness? You seriously would talk to [i]me[/i] about forgiveness? Have you any inkling of knowing what it's like to be like this? Alone? Forgotten? Dangling around for all to see, and no one to help?
+
+More then... More then you know...
+
+
+
+
+And then what
+
+1. Luna always strikes me as the one who believed that, for the good of society, there must be A Line between the rulership and the population. Ironically, this may have added to her pre-Nightmare isolation, and it may have taken that thousand-year timeout plus returning to find herself devoid of the power structures she'd devised to break her out of that mindset.
+    
+2. ### _[_21:29_]_Logarithmicon_:_ 
+    
+    Even that probably wasn't the best way to do it, but it did mean that she was finally forced to actually open up socially to individuals as an individuals, rather than as A Ruler. But it does explain a lot of her initial awkwardness.
+Обыграть что она была вроде серого кардинала Целестии, пока не начала выступать на стороне своих подопечных
+
+
+
+![[Pasted image 20230916210412.png]]
+Обсерватория на холме в старом кастл оф тву систерс
+
+
+Pretty ironic... A nightmare moon, hanging over Equestria...
+
+
+Целестия убивает остальных членов Космик Консула когда те приходят за Луной и пытаются наложить на ту геас повиновения
+Затем она убеждает Найтмар Мун подыграть ей
 
 
 черная ночь

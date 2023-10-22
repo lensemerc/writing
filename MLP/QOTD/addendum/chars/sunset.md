@@ -6,10 +6,49 @@ https://www.fimfiction.net/story/433128/time
 
 element of empathy
 
+После поверапа магия сансет становится teal-red-orange
+
 начинает упоминать Бога после трансформации
 
 Creatures like you are imperative to bring the balance
 
+https://www.youtube.com/watch?v=8b3jn79nhbE
+I love that Finn basically "inherit" some of his father senility and antisocial behavior with the caring and empathic philosophy of his brother Jake, that also took care of him. He is basically a violent empathic.
+
+They did such a good job with Adult Finn. He absolutely WOULD be the kinda guy at this point in his life who'd just walk up and inject himself into a conversation like this.
+
+The one thing I point to in her consistent traits is that her _ego_ never goes away. Sure she tries to help others after reforming, but if you watch? It's all about her. "How do _I_ fix this." "_I_ have to do this." "If _I_ don't figure out how magic works, what happens is _my_ fault."
+
+1. ### _[_18:17_]_EileenSaysHi_:_ 
+    
+    Even that diminishes as time goes on. One thing that’s always struck me about later EqG is that Sunset doesn’t really try to position herself as “the leader” of the Rainbooms in-universe and is perfectly willing to let others take point.
+    
+2. @Tempest56
+    
+    The one thing I point to in her consistent traits is that her _ego_ never goes away. Sure she tries to help others after reforming, but if you watch? It's all about her. "How do _I_ fix this." "_I_ have to do this." "If _I_ don't figure out how magic works, what happens is _my_ fault."
+    
+    ### _[_18:17_]_Forcalor_:_ 
+    
+    Wow, that's great observation. I think I've leaned into something similar in my interpretation... Will add to my notes, that is good (изменено)
+    
+3. ### _[_18:18_]_Forcalor_:_ 
+    
+    Well, not in unhealthy way, just a strong sense of self and independence (изменено)
+    
+4. EileenSaysHi
+    
+    Even that diminishes as time goes on. One thing that’s always struck me about later EqG is that Sunset doesn’t really try to position herself as “the leader” of the Rainbooms in-universe and is perfectly willing to let others take point.
+    
+    ### _[_18:18_]_Tempest56_:_ 
+    
+    It does, but it never really goes away entirely. It isn't helped by her frankly severe case of Protaganism.
+    
+
+НОВОЕ
+
+6. ### _[_18:20_]_EileenSaysHi_:_ 
+    
+    _Forgotten Friendship_ and _Sunset’s Backstage Pass_ are both situations basically engineered to force her to act independently (which works better in the latter than the former imo)
 
 Sunset is an empath
 Well, that's cool powerset to keep in mind while writing her pov, especially coupled with engineer-like approach to all things magical. Would love to explore it

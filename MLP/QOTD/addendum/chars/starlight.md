@@ -2,6 +2,9 @@ Starlight is always making excuses to keep from having to learn more friendship 
 
 if no one has magic, they have nothing to feel better than each other over, (цитата чела из дискорда)
 
+
+Dream police когда работает под Луной
+
 1. ### 19:55_]_Magnanimous_:_ 
     
     Both of them afraid of regressing.
@@ -15,6 +18,12 @@ Levitation flight
 Sometimes I hear people saying: "Starlight never got punished for her actions" but I think her thoughts about herself are her personal punishment, and this song represents that perfectly
 
 https://www.youtube.com/watch?v=xksZ58jHbwA
+
+
+Любит мрачные вещи (как её комната выглядела)
+![[Pasted image 20231007195222.png]]
+
+[https://derpibooru.org/images/1745939](https://derpibooru.org/images/1745939 "https://derpibooru.org/images/1745939")
 
 ###   
 15:09_]_Forcalor_:_ 

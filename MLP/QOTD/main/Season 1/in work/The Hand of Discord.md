@@ -6,6 +6,14 @@ It's [i]all[/i] in the hands
 
 I am a connoseur of hard choices
 
+"And quite a right amount of sass!" щелкает её по бочку
+"Hey!"
+
+
+
+После поверапа магия сансет становится teal-red-orange
+
+I am Grogar, the Father of Monsters
 
 
 "It is beautiful," Celestia said in her calm and motherly voice, "But I need to know, why"

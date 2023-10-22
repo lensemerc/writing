@@ -1,10 +1,315 @@
+
+"Everything feels so wonderful, when you are on a verge of death."
+
+
+"The moment you stop being true to yourself, you [b]lose[/b]."
+
+
+Evil creatures are incapable of love.
+
+
+"I want your love, and I [b]will[/b] get what I want."
+
+"This will never work out. Your infatuation will end."
+
+"I've been feeding on garbage for centuries, until I've met you."
+
+
+I feel so empty inside.
+
+
+Закатное солнце омывает их со спины. Целестия встает на горе, смотря вниз. Тень Кризалис рядом с ней, она кажется меньше
+
+
+Do you really want your Twilight Sparkle to become like you? Like us? I thought you [b]cared[/b] about her, Celestia...
+
+
+The world is already beautiful, with all it struggle and pain, and destruction, and disease, and darkness. Harmony will never come, and you 
+"And, you, bringer of life..."
+
+
 Кризалис валяется переломанная, приняв на себя весь удар когда аликорн таранил гору
 
 Strength is not enough
 
+crooning
+напевать (про песню беги за солнцем)
 
 
-Greetings, Queen Chrysalis. I was not expecting you to visit me this evening. Please, be comfortable. What brought you to me this time?
+Harmony will never come, Celestia.
+
+Never.
+
+https://www.youtube.com/watch?v=t6GdwET9e8k
+Never.
+
+"I believe in it."
+
+"You want to believe in it..."  "Why, it's such a sweet illusion. Unity. An orchestra of voices singing in unison. A big family where everyone loves each other." 
+
+
+The breeze in your hair
+Same as in ages of old
+Time went still for you,
+Sun and Moon stand side by side
+
+I'll run, run after you, my Sun
+Break 
+Fly, fly up with me, my Sun
+Only you is capable to keep up.
+
+Take leap of faith with me.
+
+I want to see you stronger... Why? It doesn't make any sense.
+
+
+You're just infatuated. 
+You're possessive.
+
+
+"Twilight... Twilight will manage without me..." *Celestia replied, her voice sounding a bit hollow.*
+
+"I... I believe that... that my work... my mission..." *she said, not looking at the changeling and trying to control herself.*
+
+"Twilight and my friends... they must find... their place in this world... the place where their skills can be fully... fully utilized... not hidden under my shadow..."
+
+"It... it is the way of the world... it is **natural**..." *she said, with a hint of sadness.*
+
+
+
+
+
+Кризалис впечатывается в Целестию как зеленая молния
+
+"I hate to admit it, but I was always fascinated by ability of mortals to reinvent themselves."
+
+
+"You know, mortals reinvent themselves all the time," Chrysalis rolled her eyes, "Honestly, they often so-what's the right word? Maybe... indecisive? No, that's not it." She thought a bit about it, "They wired for **change** and growth, so at least they have that going for them... They don't know how to be one thing for most of their existence, like you and me. They would find the experience... **alien**."
+
+*Celestia stayed silent, and listened to the changeling rant about mortal ponies. She seemed intrigued by her words.*
+
+"Mortal ponies are wired for change and growth... so they never know how to be **one** thing... unlike us..." *she whispered, looking at her changeling companion.*
+
+"I... well, it's fascinating to think... I wonder what it would be... to never... never know how to live as one thing. Always reinventing yourself..." *she mused.*
+
+You can't satisfy everyone
+
+Stronger the Light is, stronger the Darkness's response. The world hangs in balance...
+
+"It is you arrogant one... you, who think you can imprint your vision of the peace. Why don't you think that the world is perfect as it is?"
+
+The world is already beautiful.
+
+"I am a changeling. For centuries, all I knew is how to lie."
+
+
+This is madness. This is pure madness.
+
+
+"These are the perfect conditions to create a harmonic world,"
+competition is unnecessary when resources are plentiful and population growth is controlled.
+
+"Your light has blinded you... Your love has blinded you... Do you really think that your special little ponies will save the world?" "Do you think that they care about your precious harmony?"
+
+https://www.youtube.com/watch?v=pftDkk8z6GU
+"There will always be need of necessary evil. You know that I am right."
+
+
+
+"I won't lie, this path would be long and thorny..."
+
+
+"There is no one like you, and you say, you must go away?"
+
+Для любви нет никакой внешности, есть только характер, «яйца», воля, верность себе. Только это в дефиците в этом мире. И только это вызывает интерес, уважение, желание. И если вам всего этого не хватает, выход один – быть собой. Развивать свою индивидуальность и личностные качества. Не идти на компромиссы. Ну хотя бы не издеваться над собой, не вести себя как жертва! А лучше следовать своим желаниям, стремлениям, мечтам. Культивировать свою непохожесть на других и ничего в себе не стесняться
+
+
+- ###   
+    11:40_]_Flovv Krovv_:_ 
+    
+    – Наверно, – сказала Кая, – любовь – это когда ты хочешь спасти того, кого любишь. Особенно когда это очень сложно сделать. И чем сложнее, тем сильнее любовь. Maybe love is when you try to save someone you love. Harder it is to do, stronger the love. How can she save Luna? Celestia understood that more she was thinking about it, more power of love for seeping in for the changeling to gorge upon. But she just couldn't stop. (изменено)
+    
+
+2. ### _[_11:44_]_Flovv Krovv_:_ 
+    
+    Celestia looked to the sides. Everything was destroyed. The chambers was destroyed. Her mementos were destroyed. She was destroyed.
+    
+3. ### _[_11:45_]_Flovv Krovv_:_ 
+    
+    You are alive only when you feel pain
+
+
+*Celestia frowns thoughtfully.*
+
+"You're right. I do think monsters deserve to exist just like any other creature." *she replies quietly.*
+
+"I used to think that evil was necessary, and that darkness and light were two side of the same coin... But now, I know better. That there is so much complexity beyond my earlier conceptions of good and evil. That everything is more than black and white."
+
+"Darkness doesn't only contrast light... it stands as a foil, opposite and equal. But equally beautiful. And I will never deny that."
+
+
+*Celestia lets her words sink in.*
+
+"Yes... and you are right. Without darkness, light would be meaningless. Without monsters, what would heroes be? What... would **love** be? I would not have known what love was if I had not known... hatred, fear, and despair.
+
+"So... yes. I do not deny what you are, I do not deny what you bring."
+
+"As long... as you do not hurt my subjects or threaten my friends..." *she replies, her voice gentle and filled with kindness.*
+
+
+"Yes, I do." *the alicorn replies softly, and her eyes flicker as she looks into the changeling's eyes.*
+
+"It's beautiful." *she says.* "Because it's a creature of pure will. It has no reason to go forward, but it constantly does. No purpose, but it constantly goes forward." *Then, the mare chuckles.*
+
+"It's funny, isn't it?" *she adds, "Sometimes, our purpose is to just keep going. To be... and to go forward. That's the purpose in itself."
+
+"Maybe so." *the mare replies, her eyes closed.
+
+For the first time in the alicorn's life, there's an emotion rising in her soul... an emotion, that while foreign and strange to her, will one day become her greatest drive and her deepest desire - an emotion known as greed. Greed - for power. Greed - for pride. Greed - to reach a new, higher status. Greed - to achieve something better and greater than anything before. Greed - to change the world and make it bigger and stronger.
+
+
+
+
+
+Just imagine a world with no passions, no ambitions, no struggles... Where no one is better... No point to existing. What would you know about ideal world? You never was anything but Princess Celestia.
+
+
+"To change the world is your ambition. I think the world is already beautiful as it is."
+
+
+"Perhaps I can't attain Harmony," *she sighs, "Maybe it's impossible. But, if it is, then I'll strive towards it and try nonetheless."
+
+"Because at least I'll know I've tried... and if I succeed, I'll have changed and bettered the world... and if I fail, then... no one could fault me for not trying.*
+
+"I'll be fulfilled, knowing I did my best for my subjects, my friends, my family..." *she says softly.*
+
+
+*The alicorn closes her eyes at the Queen's words* "I've always known..." *she whispers, with a hint of bitterness and anguish.* "I've always known that Harmony is the ideal that I should strive for, but I'll always be incapable of truly attaining it..."
+
+"It's an impossible dream, that only unicorns can grasp and hope to achieve. That's why... *I know* I'll only ever be... *almost* there."
+
+
+If compassion and benevolence alone could hold the world together and change it, it would be a far more gentler and innocent place, and even in MLP setting it isn't true. And I think in MLP Celestia is kinda gets it, you know? You can easily see her character as kind of mostly content with being sidelined and playing it safe, until a [i]real[/i], [i]inspired[/i] ruler appears and navigates the realm to prosperity. Look at her ready to give the reins out, she doesn't even waits until the girl fully grows up But Celestia shouldn't be on a sort of one-mare war, as she is presented in canon, and that's why I write.
+
+
+You afraid of the darkness? I lived in darkness all my life.
+
+
+*The Princess remains quiet for a moment, her legs pressed against Chrysalis, as her hooves still slowly move along the Changeling's body, leaving streaks of white light behind them.*
+
+*Then, after being asked the most personal question of her life, without hesitation or second thoughts, she gives a concise but truthful answer.*
+
+"I'm someone who's been hurt, a lot," *she whispers, her eyes still closed, her head slightly tilted upwards as if she can hear the answer to that question coming through the air.*
+
+"And someone who can't forgive or forget."
+
+
+_You_ won't let me go? _No-o-o..._ Нервно смеются
+
+
+*The alicorn smiles gently, and she chuckles quietly at her Queen of Darkness's remark.*
+
+"Harmony isn't peace, and peace isn't harmony," *she responds.* "No life without some struggle is boring, and boring is not worth living. I like a challenge. And I love a battle. And you... you like challenges and battles as well."
+
+"I'm not saying we'll be at peace all the time, because you're right, it is boring." *she chuckles.* "So let's do things differently this time, huh?"
+
+
+"You think that running from pain will make anything better?"
+
+Oh, but i _am_ a monster. I _am_ a monster, and i _thrive_ in it. If not this bound, or if you were _weak_, Celestia, i would have obliterated you and make you my slave.
+
+—А как испытать радость за другого?  
+—Для этого надо ничего не хотеть для себя.  
+—Ты что, ничего не хочешь для себя?— спросил он недоверчиво.  
+Я отрицательно покачала головой.  
+—А почему?  
+—Я уже как-то тебе говорила. Когда долго смотришь вглубь себя, понимаешь, что там ничего нет. Как можно чего-то хотеть для этого ничего?  
+—Но ведь если в тебе ничего нет, то в других и подавно.  
+—Если разобраться, нигде нет ничего настоящего,— сказала я.— Есть только тот выбор, которым ты заполняешь пустоту. И когда ты радуешься за другого, ты заполняешь пустоту любовью.
+
+
+"You are not beyond changing for the better, [i]even[/i] you. You could've done far worse things to me and my ponies, but you []are capable of caring."
+
+"You're seeing things, Celestia," she 
+
+"No, you [i]care[/i]. In your twisted way, but you [i]are[/i] capable of that."
+
+"You are delusional." Chrysalis replied in clear, calm tone.
+
+"No, Chrysalis. Even while you remained blind to it yourself, I saw it, and I despised it." Celestia smirked, "I despised that creature like you, with a mind wired for change, can be so [i]blind[/i]. So bent on destruction."
+
+"It's only because I wanted your power. There's nothing more to it, pathetic mare." The Queen replied with stern, but muffled voice, "You've played right into my hooves, and I will reap my reward."
+
+"I challenge you to love me."
+
+
+"Why are you in denial? Are you afraid of me?" Celestia leaned lower to the changeling, "Isn't that what you wanted? Don't you wanted me to become stronger?"
+
+
+
+"You aren't unfamiliar to the darkness yourself..." Chrysalis embraces Celestia, replying back with strange soothing voice, "I can see it in you, sensing it in you. Like a larvae burrowed deep into the chamber of your heart. You've tamed it inside of you, didn't you? You put it to the cause for those who you love..." She cackled, "How **admirable**..." 
+"There's nothing more to love than strength, boldness, and resilience. 
+
+
+," she made a face.
+
+"You must be thinking that I've sullied you," Chrysalis licks her lips, and whispers, "That my darkness is something wrong... but we both know that it isn't true. Darkness is just as natural as anything else." She moves her head, looking into Celestia's eyes starkly, "You know it just as I do. You just always wanted to avert your gaze."  
+"Look where it got you..."
+
+
+"You think that you are opening my eyes with that? "
+
+
+"And how does it feel, always being at war with yourself?"
+
+"You tell me, my Queen."
+
+"Feels like being alive."
+
+"Feels like being alive, indeed."
+
+
+At first, it was all for my Sister, and the crime that she committed. Soon, it became about much more than that.
+
+Antiquity antiquaited 
+
+
+After all, you know that there are things out there..." sharp breath, " Far more dangerous than me..."
+
+
+You were too blinded by light
+
+
+Aren't you curious to know what will happen next?
+
+
+When an unstoppable force meets an immovable object, the two must become one.
+
+"No... it's not enough. I was born to protect, to inspire, to lead by example. But I know... in my heart... in my mind..." 
+
+*I pause, as I look at her in her deep, lustful eyes.*
+
+Will it be corruption to try live for herself, or is she conditioned to think so?
+
+
+"Cooped up in your castle, have you ever saw the world out there? Of what harmony and love can you even speak of, Celestia, if you want them to take on your vision?"
+
+"I've seen enough for my lifetime. I know when it is time for me to stand aside, Chrysalis."
+
+"So you want to передать свою войну другим?"
+
+"This is the way of progress. Immortal creatures like me must go away. Don't I deserve rest, side by side with my sister?"
+
+"Does she knows of this?"
+
+
+Кризалис трясется во смехе "How beautiful you are to me... Anything, anything to achieve what you desire in your soul,"
+"What do you even know of life and love?"
+
+
+""
+
+"What if the world is perfect as it is?"
 
 l
 
@@ -377,11 +682,11 @@ How did it all come to this? Here she was, being seduced by this creature, a kno
 
 "[i]When we are afraid, we are pressing forward anyway,[/i]" she remembered. Oh, little [i]Cadance[/i]...
 
-"I do not believe you," Celestia whispered, "I know that you will try to use me to your own end, that you hate me, and even if you somehow think otherwise right now, your own [i]nature[/i] won't let you to be in peace with me. You will turn on me, and betray everything that I am standing for. You would be my downfall, you wicked, vile beast."
+"I do not believe you," Celestia whispered, "I know that you will try to use me to your own end, that you hate me, and even if you somehow think otherwise right now, your own [i]nature[/i] won't let you to be in peace with me. You will turn on me and betray everything that I am standing for. You would be my downfall, you savage beast."
 
-Chrysalis exhaled sharply, pressing against her, and Celestia slowly leaned to her drooped-down ear.
+Chrysalis exhaled sharply, pressing against her, and Celestia moved muzzle to Chrysalis' drooped-down ear.
 
-"The moment you become bored... No... [i]One[/i] misunderstandment is all that would take for you to turn on me, and to revert fully to your wicked ways. You are a creature that sees [i]commitment[/i] itself as a weakness. To depend on another for you is like making a cardinal sin against your own nature. You are a prideful, shortsighted thing."
+"The moment you become bored... No... [i]One[/i] misunderstandment is all that would take for you to turn on me, and to revert fully to your wicked ways. You are a creature that sees [i]commitment[/i] itself as a weakness. To depend on another for you is like making a betrayal of yourself. You are a prideful, shortsighted thing."
 
 The Queen chuckled. "So what of it now? What do you want to tell me, demigoddess?"
 

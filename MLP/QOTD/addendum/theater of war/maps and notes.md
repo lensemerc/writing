@@ -13,3 +13,6 @@ https://www.fimfiction.net/user/383367/Starswirl+the+Beardless
 
 https://docs.google.com/spreadsheets/d/1_rfimS92HWb-Iv0T0IQwK57eSxAqgZjA4n7zCB7XUck/edit#gid=0
 это копия
+
+
+Сделать карту

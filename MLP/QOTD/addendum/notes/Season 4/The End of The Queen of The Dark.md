@@ -10,6 +10,10 @@ pony plague doctors
 
 Добавить флэшбеки о том как она жила
 
+Луна это тьма Целестии
+
+Целестия объединяется с Луной в одно существо
+
 "Who I will be today? Oh, I can be *anyone,* am I?"
 
 first victims of tricksters are themselves

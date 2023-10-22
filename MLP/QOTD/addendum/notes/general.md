@@ -5,12 +5,28 @@
 
 ![[Pasted image 20230822005429.png]]
 
+Rejoice, since there is no Queen. Rejoice, since there is no realm. Rejoice that nothing divine lives, And for millennia that yet untold, A coldest light will now unfold. Bask in the gleam of rising dawn. Rejoice for the emptiness and vacuum, Rejoice for the bleakness and the death, Rejoice that we won't find a succor, Rejoice that we won't need an aid
 
 
+ensorcelled, ensorcerly
+https://www.etymonline.com/word/ensorcell
+
+-- околдовать
+
+
+разложение, трупное окоченение, когда организмы уже начинают
+ганс гигер 
+будто разлагается. тема энтропии, хаоса который привел к финальной стадии. тело вытянутое на каталке, которое спокойно претерпевает трупное окоченение. мышцы застыли, а микроорганизмы приспосабливаются к спокойному окружению, превратившееся в источник пищи
+
+![[Pasted image 20230917223802.png]]
+
+rakishly - лихо
 
 sting of wasp is like an act of love. poison like ejaculation (harvester)
 
 freeform poetry -- посм., попробовать
+
+Forget about your pain and woes
 
 laughs gleefully
 
@@ -259,3 +275,34 @@ Something inside her, little by little, gone numb.
 
 
 
+'It's good that there is no more Queen. 
+Good that there is no Equestria. 
+Good that there is no Celestia... 
+
+Only the light in the hearts. 
+Only the ice in the stars. 
+Only millions of years... 
+
+It's good that no one. 
+It's good that no thing. 
+So dark as the time. 
+
+That it couldn't be darker... 
+No one will help us... 
+And we don't need any help..
+
+Rejoice, since there is no Queen.
+Rejoice, since there is no realm.
+Rejoice that nothing lives divine.
+
+And for millenniums yet untold,
+Coldest light will now unfold.
+Rejoice for the gleam of rising dawn.
+
+Rejoice for the emptiness and vacuum,
+Rejoice for the blackness and the death,
+
+Rejoice that we will find no succor,
+Rejoice that we don't need no aid.
+
+There's no light and there's no life

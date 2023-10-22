@@ -1,2 +1,6 @@
 'Here lies Princess Amore'
 
+
+Princess Amore is stated by [Amy Keating Rogers](https://mlp.fandom.com/wiki/Amy_Keating_Rogers "Amy Keating Rogers") to be "a very distant relative" of [Princess Cadance](https://mlp.fandom.com/wiki/Princess_Cadance "Princess Cadance")[[1]](https://mlp.fandom.com/wiki/Princess_Amore#cite_note-cadance-1) and by Jeremy Whitley not to be "dead dead" at the end of [FIENDship is Magic Issue 1](https://mlp.fandom.com/wiki/FIENDship_is_Magic_Issue_1 "FIENDship is Magic Issue 1")[[2]](https://mlp.fandom.com/wiki/Princess_Amore#cite_note-2) (Whitley "had always intended for her to be not explicitly dead, but Hasbro asked for clarity";[[3]](https://mlp.fandom.com/wiki/Princess_Amore#cite_note-3) "Hasbro was very specific about not killing off characters").[[4]](https://mlp.fandom.com/wiki/Princess_Amore#cite_note-4)
+
+Amy Keating Rogers (2014-06-14). [@jordanolling I think of her as a very distant relative.](https://twitter.com/KeatingRogers/status/477983361521025024). Twitter. Retrieved on 2014 June 15.

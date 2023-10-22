@@ -5,6 +5,9 @@ Crescentic Nightmare Moon (в Сезон 3)
 She Reigns (афтермаф для второго сезона и что-то логически переходящее в Триумвират. Добавить анимацию здесь)
 Lord of the Sheep
 
+первая встреча Целестии и Луны в детстве
+
+
 похищение Целестии? Threads of Lies. Коко. 
 https://www.fimfiction.net/blog/1019523/cozy-glow-short-story-contest-4 Cozy Glow, её место в лас пегасусе. засетапить. что-то связанное с Джоффри или игрой престолов. обдумать. Cozy Glow had no soul.
 https://www.fimfiction.net/group/217100/the-whodunnit-youdunnit-contest-group/thread/521959/announcing-the-whodunnit-youdunnit-contest для этого история

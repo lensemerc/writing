@@ -10,19 +10,21 @@ Yes, that is correct. I have officially stepped down from the position of the Qu
 
 The internal ministries of Equestria, representing the various aspects of the nation, are:
 
-1. The Ministry of Health and Wellfare  - responsible for the well-being of Equestria's population and infrastructure.
+1. The Ministry of Health and Wellfare  - responsible for the well-being of Equestria's population and infrastructure. Buster Brown
 2. The Ministry of Agriculture
 3. The Ministry of Arcane - responsible for the regulation and management of magical artifacts and other dangerous magic. -- Lord Puppy Eyes
 4. The Ministry of Education and Culture - responsible for Equestria's educational system and research. EEA (Equestrian  Education Association). Chancelor Neighsay
 5. The Ministry of Finance. -- Lord Shorn Page
 6. The Ministry of Justice
-7. The Ministry of Industry
-8. The Ministry of Foreign Affairs - responsible for maintaining Equestria's foreign relations, trade and diplomacy. -- Какая-нибудь зашоренная баба
+7. The Ministry of Industry -- оверсир андерсити. Chancellor Cookie Cutter
+8. The Ministry of Foreign Affairs - responsible for maintaining Equestria's foreign relations, trade and diplomacy. -- Какая-нибудь зашоренная баба Surprise
 
 Raven Inkwell - Personal assistant to Celestia
 Kibitz - royal scheduling advisor https://www.myjewishlearning.com/article/yiddish-words/ добавить словечки еврейские
 
 появляются в течение истории:
+
+Pretty Edgy
 
 The Ministry of Defence - responsible for Equestria's security and protection against external threats. -- организует Целестия
 The Ministry of Intelligence - делает Кризалис

@@ -5,6 +5,88 @@ https://www.fimfiction.net/story/520470/and-so-i-left
 написать в похожем стиле
 
 
+- ### _[_12:02_]_Flovv Krovv_:_ 
+    
+    Энтропия убеждает Каданс в циничности Потом говорит I lied, и убивает её в конце. Романтичная любовь существует. И имя ей Кризалис
+
+### 5:43_]_Flovv Krovv_:_ 
+
+Твайлайт из tQotD, которая почти потеряла надежду, встречает Твайлайт из оригинала. Они говорят о том как все живые существа это магия и любовь, и даже простое дыхание это акт любви. Потом асцендед твайлайт оказывается духом любви, ридимед Кризалис. Твайлайт понимает это, но не злится Beautiful fantasy, isn't it?
+
+
+Megan как Финн из Адвентур Тайм
+Принцесса Целестия как Принцесса Бабльгам
+
+
+
+Адвентур Тайм Сезон 5 Эпизод 29
+посм. для вдохновения Кризалис+Целестия (Баблгам и Марселин)
+
+
+My Wife is an Omnicidal Overlord:
+Кризалис данжен мастер
+1. ### _[_19:42_]_Forcalor_:_ 
+    
+    She is the main gemstone provider, any dragon would want to be with her
+    
+2. ### _[_19:43_]_Forcalor_:_ 
+    
+    Man, Chrysalis might make for a sick dungeon master
+    
+3. ### _[_19:43_]_Heavy Mole_:_ 
+    
+    Well, the characterization is really good. They're both older and Rarity is starting to look back on her life of success, it's good.
+    
+4. @Forcalor
+    
+    Man, Chrysalis might make for a sick dungeon master
+    
+    ### _[_19:44_]_Heavy Mole_:_ 
+    
+    I thought about a 'Pumpkin Talk II' where we actually meet the dungeon master, since it isn't mentioned in the story.
+1. ### _[_20:08_]_Forcalor_:_ 
+    
+    Really would love to see that, especially since it got me imagining ![😁](https://discord.com/assets/ab226fe832acc948e9f974decd04a4f0.svg)
+    
+2. ### _[_20:08_]_Forcalor_:_ 
+    
+    that is neat
+    
+3. ### _[_20:09_]_Forcalor_:_ 
+    
+    I'll write it down, will cite you as an inspiration when will get around to writing story
+
+1. ### _[_21:38_]_Forcalor_:_ 
+    
+    She's like a warlock with Luna as a patron
+    
+2. ### _[_21:38_]_Forcalor_:_ 
+    
+    from d&d
+    
+3. ### _[_21:39_]_Forcalor_:_ 
+    
+    _writes it down_
+
+1. I can even imagine battle unicorns who willingly remove their horn and train to use raw power reserves it gives access to
+
+![[Pasted image 20230918015809.png]]
+
+Кот-меценат который носит обычного кота на руках
+
+1. ### _[_22:17_]_Forcalor_:_ 
+    
+    I also love how the movie establishes that ponies are really small in-universe
+    
+2. ### _[_22:18_]_Forcalor_:_ 
+    
+    Literally hobbits
+    
+3. ### _[_22:18_]_Forcalor_:_ 
+    
+    Celestia and Chrysalis aren't big/tall, they normal-sized
+
+Повзрослевшие CMC которые охотятся на монстров
 
 https://en.wikipedia.org/wiki/Sleipnir
 СЛЕЙПНИР

@@ -35,9 +35,9 @@ She giggled, "I'm not afraid!"
 
 "It really isn't," added Starlight, who was listening with growing fascination.
 
-"Still!" Aurous glanced at the mare, "We already had some fun with it, why not have some more? You know, double it?"
+"Still!" Aurous shushed the mare, "We already had some fun with it, why not have some more? You know, double it?"
 
-"Now you're just speaking like Lunar Princess, do you?" Mellow squinted her eyes in mischevous streak, then laughed.
+"Double the fun? Oh, you do live dangerously, do you? Now you're speaking like the Lunar Princess?" Mellow squinted her eyes in mischevous streak, then laughed.
 
 "So what? Do it. Do it. C'mon Starlight, with me: do it. Do it."
 
@@ -47,13 +47,13 @@ They both went on looking, snickering like little girls, how elder wizard grabbe
 
 Starlight experienced strangest feeling of deja vu. It was worth it, though.
 
-"I've added 'bearded'," Mellow admitted quietly, her cheeks were of a shade of pink.
+"I drew it. Also I've added 'bearded'," Mellow admitted quietly, her cheeks were of a shade of pink.
 
 "'Bearded butt-face'! Ah, this is amazing! We needed to go with 'goat-face'..." 
 
 "Well it is too late now..."
 
-"What do you mean, too late? We are literally in time distortion."
+"What do you mean, too late? We are literally in a time distortion."
 
 "Oh, now you're just being difficult..."
 

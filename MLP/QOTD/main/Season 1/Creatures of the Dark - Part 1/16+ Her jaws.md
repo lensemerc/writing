@@ -1,7 +1,27 @@
+"I am compelled to your light, and I won't run from it."
+
 Her skin was like suede, smooth and tempting. 
+
+She felt like a drug.
+
+Her voice dripping like honey.
+
+"Do you want to pour all your hatred on me?"
+
+"How [b]noble[/b],"
+
+"I want to tear you apart."
 
 Chrysalis locked forelegs on the alicorn's neck, pulling herself closer, pushing chests. Celestia felt the urge to give into the temptation. She wanted the kiss. That damn changeling [i]saliva[/i], she recognized—the secretion in Chrysalis' mouth was like a drug, and it was addictive.
 
+You might have powers of a demigoddess, but your you have little when it comes to intellect, as befits to an insect.
+
+"I know where you hid your little Twilight Sparkle from me."
+"You don't think I was wasting all this time, do you?..."
+"Maybe next time you will see her stone head, torn from her body, mare. For [b]all[/b] the pain you've caused me!"
+
+
+"I want to see how light go dim in your eyes."
 
 *Princess Celestia could see in the dim light exactly how the changeling queen moved. It was with a certain grace that was both intimidating and attractive at the same time. Her footsteps were quiet, even though at the same time, they also felt like an inevitable approach of something that might cause a major change.*
 
@@ -12,11 +32,125 @@ Chrysalis locked forelegs on the alicorn's neck, pulling herself closer, pushing
 "I want to **taste** you... **Inhale** you... I **need** you. I **crave** you."
 
 
-"Your calmness and firmness do not impress me, mare," she smirked, "I can hear how your heart beats, you know. I see that your pupils are dilated in arousal. I can sense your smell, how it spiked now with all kinds of flavors. Ah, you shifting your hooves, there..." She giggled, "Am I getting under your skin?"
+ПОСЛЕ ТОГО КАК ЧАСЫ ОБРУШИВАЮТСЯ И ВСЕ ЗАПОЛНЯЕТ МАГИЯ
+Кризалис: Submit! обращаясь к Старлайт и Старсвирлу, поражает их магическим зрением
+
+As if she wants to meld with her.
+
+Stop rationalize! Stop your thinking! Enough of this, just feel, feel, **feel**!!
+
+После того как Целестия обнаруживает мёртвых пони 
+Her rage was cold 
+Кризалис пытается навязать очередную стычку лучей 
+Целестия выдыхает сноп дыма Oh, you're fuming? Спрашивает, вися вниз головой на стене Delightful
+
+Обозначить способности
+
+If you try to run away, I'll catch right back in my grasp...
+
+
+She felt free, playful, unstoppable.
+
+
+
+her breastplate
+
+
+What if I know where you hid your little Twilight Sparkle?... Maybe you will wake up tomorrow with her stone head, broken off from the statue, lying at your knees with that delicious expression of despair...
+
+
+She pushes the alicorn harder to the throne, and to the wall. She's ever so ravenous, this lanky monster, that is so thin and malnourished. Her hooves dig deep into Celestia's soft coat, as well as into a bit too grown flank after all this sitting in one place and consuming sweets. Chrysals breathes warmly, satisfied, and her fire keeps going, as bestial loud slaps fill the throne room. 
+"Our souls entwined," she murmurs, "Do you feel it?"
+
+a carnal dance
+
+There's nothing more true to us than hungers and desires... The powers that move the world itself.
+
+
+Together we are more alive, than on our own...
+
+
+"You've created flesh of dead ponies to create that construct?" 
+
+"I've thought you would like the irony."
+
+Атакует.
+
+
+"Such fury."
+
+"You're a *monster*..." Celestia groans, moving her face closer to Chrysalis's ears, "You deserve to die..." she rasps, "Your crimes are unforgivable..." but now there is a strange glow of excitement and pleasure in her eyes... she is getting used to the Changeling's closeness, even though the touch of her enemy makes her shiver with disgust... but her hatred for her only grows stronger...
+
+
+*The Princess leans into her grasp and she doesn't even try to stop the tears. The alicorn wraps her arms around the Changeling Queen, and she closes her eyes. She is lost in the warmth of Chrysalis, and in the moment.*
+
+"I would follow you to the end of Equestria," *she whispers, slowly, as she opens her eyes again and looks directly at the pale Changeling, with tears still streaming down her face.* 
+
+"Whatever darkness awaits us, I can handle it by your side."
+
+*The Changeling's touch makes the alicorn feel like she's melting. Her tail wags rapidly with a growing euphoria that turns into a frenzy. Celestia's body writhes, she closes her eyes, panting, and turns slightly closer to the Queen, as if to invite her deeper. The Princess wants all of it. She no longer even cares that she let herself give in to temptation. Her whole body desires it, it craves for the darkness just to forget the burden of her guilt and responsibility.*
+
+После того как глаза устремляются вниз, Целестия поднимает голову и видит 
+
+"Your calmness and firmness do not impress me, mare," she smirked, "I can hear how your heart beats. I see that your pupils are dilate in arousal. I can sense your smell, how it spiked now with all kinds of flavors. Ah, you shifting your hooves, there..." She giggled, "Am I getting under your skin?"
+
+
+"You'd love to indulge in being something other than a Princess, don't you, mare?" 
+
+Dark desire
+
+You make me forget... My guilt... My fear... My loneliness... Everything goes away when we're together.
+"I will burn this realm for you, Celestia. I want to taste you... "
 
 ""
 
-Kiss my on my hoof and pledge your loyalty to me
+pledge your loyalty to me
+
+Пов Луны. Старсвирл спешит оживить её, пока Старлайт помогает на фоне. Она видит как Целестия и Кризалис сражаются, все крушится, все башня ходит ходуном. Они наконец переносят битву к ним
+
+Использовать теги left и right
+
+"Do you love me as I love you, Sister?"
+
+"Have you ever felt desire for me, Sister?..."
+
+"You should've proposed to me, Sister."
+
+"You've been missing out, Sister..."
+
+"You should've tried to comfort me at night, maybe just once."
+
+"Or twice..."
+
+"Thrice..."
+
+Одна кусает за бочок, в они все обнимают её, сжимают в объятьях. 
+
+"Maybe I would've wanted this..." whispered her voice, sending shivers of disgust and and pleasure.
+
+"Maybe I would've expected this..."
+
+"Maybe I craved you all along..."
+
+"To share thoughts with you."
+
+"To share burdens with you."
+
+"To share every little thing with you."
+
+"You will never get another chance." шепчет одна в одно ухо
+
+У другой загорается рог, и она шепчет во второе: "Stay away."
+
+Телепортирует её вместе со всеми остальными. Те тают, смеясь. Затем Старсвирл и Старлайт телепортированы тоже
+
+"I am surprised you've played along."
+
+"I want them out just as well."
+
+
+
+Целестия превращается в ослепительный белый шар как в s 1 ep 1
 
 
 Knees buckle from peer preshure
@@ -191,6 +325,8 @@ she was speaking slowly, with an echoing growl behind her arrogant and cutting v
 Not like that. Not with that [i]want[/i] and [i]need[/i]. 
 
 ""
+
+Превращается в волка, вытается прокусить её, царапает пейтрал и наносит рану. Целестия взвизгнула, прожгла его 
 
 
 Her movements were fluid and graceful, yet also powerful and precise.

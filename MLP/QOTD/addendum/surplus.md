@@ -1,3 +1,651 @@
+[The looking-glass]
+
+still not knowing how to react to anything anymore. Only thing that she knew
+
+
+
+
+
+
+
+
+
+
+
+First Compendium of Equestrian Laws
+
+
+
+
+
+
+
+"What balance there can be without control? You want a world where everyone have a place? Everyone can realize their potential and have a purpose? Don't you ever crossed your mind that someone needs to fight for it, making tough decisions for you all to enjoy your lot in burden-free life?"
+
+
+magnanimous - Великодушный
+
+I have no belief in her. 
+
+mount the attack
+
+
+"
+
+
+hat's going on with [i]her[/i] is a completely different magical precedent. She isn't supposed to even [i]be[/i] here! It's all that wedding and its distortion, it's that fulcrum event, that forced the whole paradigm to be changed!"
+
+
+Красивые цветы обрамляют спящую Луну
+
+
+ 
+### _[_19:08_]_Vinylshadow_:_ 
+
+Guess Starlight learned old ponish and being able to read Star Swirl's hornwriting from when she modified his time travel spell
+
+
+
+
+
+
+
+"If only I had spent more time in Equestria..."
+
+
+---
+
+
+Alice didn’t like being criticised, so she began asking questions. “Aren’t you sometimes frightened at being planted out here, with nobody to take care of you?”
+ prismatic
+
+serendipitous - счастливый случай. your arrival is a serendipitous happenstance at best
+ample
+
+Sunset: 
+
+
+
+
+
+"I thought I nearly destroyed everyone..."
+
+"You didn't, and you did nothing wrong.
+
+
+"You are a daydreamer, just like her."
+
+"Huh," Sunset adjusted her sunglasses. "Guess I've learned from her more than I expected."
+
+
+"Is it's trunk supposed to be cracked?"
+
+"
+
+
+
+
+"The stars have shifted their pattern."
+
+
+
+
+and I'll go find out what the whole fuss is about.
+
+
+"A parallel, branching universe?"
+
+
+fluctuations
+
+
+
+
+
+It's not that you do not belong in this timeline. You do not belong in this world at all.
+
+
+
+If you so like choices, then I am giving you one. создает телепорт обратно в эквестриа герлс Go now and forget about everything that you've witnessed. You said you've had a pleasant life in your... little dimension, didn't you? Then go, live the best of it while you can. 
+
+Sunset creased a brow: You talk like you've never been there by yourself.
+
+
+
+"Your solution 
+
+Now ta"
+
+
+
+
+
+
+
+
+
+
+Старлайт говорит что ей надо подумать.
+
+"That's not the whole truth."
+
+"Something did went awry with your plans, right? Something... Something is very wrong."
+
+
+
+
+"You wouldn't banish me to limbo, or punish somehow?"
+
+"Preposterous."
+
+
+
+
+
+
+
+
+
+
+Silence hung heavy in the air. Then, he spoke: "Yes, of course I am afraid." His features creased into a grim determined look. 
+
+
+
+Starlight began to hyperventilate. She took a step back, sweat dripped down her forehead. Seeing this change, Starswirl stiffened, looking more intently than ever.
+
+Старлайт в ужасе, 
+
+
+"Why that tree is so still? Is that a real tree? A projection? What is it?"
+
+
+
+
+Starswirl shrugged, and the portal collapsed into nothingness, "Well, such is a fate of choice. Now..."
+
+Он замечает что том отсутствует. Сцена с временными парадоксами итп
+
+
+
+"What you perceive as time is something incredibly self-centered." (оставить либо тут, либо для третьей части)
+
+
+
+
+
+
+
+
+"And that is why there exist ponies like me, or Celestia, or Luna, or Twilight, so no one else would be forced to make these sacrifices,"
+
+
+"Hope you are enjoying your little bipedal universe," he replied
+
+"Would've enjoy it more, if you weren't tossing out there your own screw-ups, like the sirens," she growled back.
+
+Starswirl rolled his eyes.
+
+
+"Starlight. Hey." She placed hoof on Starlight's shoulder, 
+
+"What if he's right?" She replied weakly, "What if it is really only correct way forward? To hold it all together?"
+
+
+Слезы текут против её воли
+
+
+
+
+
+
+
+---
+
+avarice - алчность
+
+1. ### _[_19:37_]_Flovv Krovv_:_ 
+    
+    Daydreaming naive fool
+    
+2. ### _[_19:41_]_Flovv Krovv_:_ 
+    
+    We create idols and then get disappointed in them
+
+1. ### _[_13:43_]_Flovv Krovv_:_ 
+    
+    unburden yourself
+    
+2. ### _[_14:18_]_Flovv Krovv_:_ 
+    
+    And how is it wrong for everyone to have a purpose and significance?
+
+"The foulest evil looms upon us," Starswirl shook his beard in zealous outrage, "We mustn't waste a second of our time!"
+
+
+"For all I know, I'd expect it's only a matter of time before she kisses her hoof and pledges loyalty to her cause, however vile it might be"
+
+### 9:00_]_Flovv Krovv_:_ 
+
+There are greater truths in the worlds. We need order so things like these were stop happenin
+
+Hive Queen is one heinous menace
+
+
+"I'm coming with," Sunset stepped closer, "Wanna see what's the whole fuss is about him."
+
+"You'd better be careful out there, word is, changelings are still lurkling around"
+
+
+
+
+
+
+
+"Hey... Sunset?" 
+
+"What do you mean?"
+
+
+
+
+
+
+galt - _to grasp or seize suddenly_. to defer; postpone. to introduce; to send, put, or let in
+
+inscrutability - непостижимость
+
+Перед тем как уходит к Старсвирлу
+Флаттершай, до этого все время была тихой, говорит с Сансет
+
+
+
+
+Sunset felt her own heart pounding. 
+
+Sunset's features creased into a determined frown.
+
+
+"Sunset!" 
+
+"Flutters?" She smiled, "What's up?"
+
+The pegasus with slightly reddened cheeks from embarassment. "Please, don't be too hard on yourself."
+
+смена пова 
+девочки рассказывают за кадром новости
+чашка дрожит в копыте старлайт
+дэш в отключке, прибегает пинки, эджей помогает, рэрити рассказывает. флаттершай приходит тоже. потом заваливается старсвирл. "Че за дела, я ждал вас у ворот"
+Сцена с мелом
+Целестия запретила всем ходить по улице или покидать территорию госпиталя
+
+
+"I'm no unicorn, so no, I do not dabble," 
+
+
+Yes, time. Unless you master it, it will master you.
+
+
+
+
+"We can do "
+
+Сначала разговор про то как чейнджлинги перевоплощаются
+
+Do you think that you can learn this magic?
+
+
+
+
+
+Вход в город частично уничтожен. Сансет и Старлайт частично узнают от стражника о том что происходит, но о том что Твайлайт обращена в камень - от мейн 6
+
+"Where..." 
+
+телепорт
+
+"...are..."
+
+телепорт
+
+"...we..."
+
+телепорт
+
+"...going?"
+
+"Ha!" Sunset did a little clap with her hooves, smiling.
+
+Эпплджак волнуется про свою семью
+
+Сансет и Старлайт встречают оставшихся из мейн 6 в госпитале
+
+
+"Girls, where is your moxie? Don't be so down."
+
+"Ну, кто-то же поднял солнце"
+
+
+"Oh, Sunshim! Hi!" Pinkie waved a hoof at her energetically.
+
+
+
+
+"I owe everything to Princess Twilight Sparkle," Sunset admitted in a small voice, looking lost and absentminded, "" (посмотреть, )
+
+В госпитале 
+Целестия забрала чуть раньше тех кто из правительства и скомандовала остальным ждать в безопасности
+
+Флаттершай ОЧЕНЬ стесняется
+
+"I am very stressed out too," Sunset admitted, "but it doesn't mean that I will just sit and do nothing!"
+
+
+----
+
+
+
+
+The Horn of the Everfree, Rainbow Crystal, Mirror of Double, Nightmare Diadem
+The Sword of the Elements of Harmony, reforged from them, shattered The Horn of the Everfree Rainbow Crystal, which can imbue your magical prowess one time, after which it won't be useful Mirror of Double, which seem to can teleport you into any other place, but will leave your shadow behind, it will have ill intent towards others, harbored from your desires. Also it will slowly corrupt you Nightmare Diadem, which turn the wearer into evil and twisted version of themselves Various books and scrools on different forms of magical arts
+
+8 magical artifacts of Mage Meadowbrook?
+
+"I-I... I need their free will... Because... When they do as I ask... I feel... ***Special***." 
+
+"The free-will of others... Can create unnecessary problems. The lack of cooperation, with the free-will of others... Can bring disaster. With free-will, you are given the freedom to leave. Leave from our town, our community... And once that happens, the whole purpose of our community... Is lost."
+
+...*The feeling between them... Feels extremely hot.*
+
+Given the emphasis on 'eastern' I'm tempted to go with traditional sacred items from cultures in the Far East...
+
+Such as the [vajra](https://en.m.wikipedia.org/wiki/Vajra), a mystical dagger, or the [yata no kagami](https://en.m.wikipedia.org/wiki/Yata_no_Kagami), a sacred mirror. The truth is that the objects themselves could be anything, and their powers could be anything as well.
+
+
+"Can't you just lock it up and go?"
+
+"Well, I..." Starlight smiled nervously, "What if someone steals it?"
+
+"Come on, who will break in anyway? It's [i]Ponyville[/i]."
+
+"Changelings?" Starlight offered, unsure.
+
+"Seems like it's not in their priority. How [i]they[/i] would know that all this stuff is here, anyway?"
+
+Starlight awkwardly shrugged, and picked the floor with a hoof: 
+
+
+
+
+
+
+Magicus... Benignitas... Beneficentia... Cachinno... Fidelitas... Probitatis... Veraque...
+
+
+Меч Гармонии
+Kindness - 
+Magic - 
+Generosity - 
+Honesty - 
+loyalty - 
+Laughter - 
+Empathy - 
+
+
+
+Starlight frowned: ""
+
+Oraculum pacis sum. 
+
+sword engraving
+
+arcane symbols embossed
+
+Edge of peace
+
+
+
+
+
+
+
+I've always put Twilight, Starlight, and Sunset on the same power level - but the difference is in perspectives and how they utilize that power. Twilight spent her entire life holding back. She's been taught restraint, there's points where she actively fears her power, and she loses control when confronted with _truly_ high power levels until fairly late in the series. 
+Starlight is self-taught and has never faced another pony who's even _vaguely_ on her level until she meets Twilight. She's a sledgehammer and that works fine for her. Raw blunt magical force has always worked for her, and she leans into it. (This is why she's able to match Twilight: she's going full force while Twilight is holding back.) 
+Sunset, for a third perspective, has power but leans more into trickery and guile. Where Starlight never faced and equal, Sunset _always_ saw herself as weak because her every action was compared to Celestia. So she was never strong enough so instead she's all about novel approaches, edge cases, and elaborate plans. (Right up until she gets the Element, which she deems 'enough' and goes whole hog.)
+
+1. ### 17:43_]_FanOfMostEverything_:_ 
+    
+    Twilight is blue. Magic is means by which she expands her knowledge and refines her craft, a tool she can employ (and can sometimes rely too much on) in pursuit of self-improvement, whether she defines that by being the best living spellbook imaginable or a good friend.
+    
+2. ### _[_17:45_]_FanOfMostEverything_:_ 
+    
+    Starlight is red. She is impulsive, she explicitly draws power from her emotions, and she _deeply_ resents being told what to do something she doesn't feel is right. She throws everything she has into what she does just because that's who she is. Middle gears are for ponies willing to compromise. Starlight needs an apocalypse rubbed in her muzzle before she can even consider she has the wrong idea.
+    
+3. ### _[_17:47_]_FanOfMostEverything_:_ 
+    
+    Sunset is the middle ground between them, the shared ally bridging the gap. In other words, she's black. Where Twilight uses magic for self-improvement, Sunset uses it for self _advancement_, furthering concrete ambitions (even when they're positive intentions) rather than an abstract, indeterminate goal of "getting better." She's not afraid to go all in, but it's for a purpose rather than simply because she refuses any other option.
+
+
+
+
+
+
+- A particular part of the [vocal range](https://en.wikipedia.org/wiki/Vocal_range "Vocal range") such as the upper, middle, or lower registers.
+- A [resonance](https://en.wikipedia.org/wiki/Resonance "Resonance") area such as [chest voice](https://en.wikipedia.org/wiki/Chest_voice "Chest voice") or [head voice](https://en.wikipedia.org/wiki/Head_voice "Head voice").
+- A [phonatory](https://en.wikipedia.org/wiki/Phonation "Phonation") process.
+- A certain vocal [timbre](https://en.wikipedia.org/wiki/Timbre "Timbre").
+- A region of the voice that is defined or delimited by vocal breaks.
+- A subset of a [language](https://en.wikipedia.org/wiki/Language "Language") used for a particular purpose or in a particular social setting.
+
+In [linguistics](https://en.wikipedia.org/wiki/Linguistics "Linguistics"), a **register language** is a language that combines [tone](https://en.wikipedia.org/wiki/Tone_(linguistics) "Tone (linguistics)") and vowel [phonation](https://en.wikipedia.org/wiki/Phonation "Phonation") into a single [phonological](https://en.wikipedia.org/wiki/Phonology "Phonology") system.
+
+Feelings of dread, 
+
+Starlight is always making excuses to keep from having to learn more friendship lessons, and has outright denied growing like when she didn't want to leave Twilight too early after the changeling's second invasion. Sunset is very similar, and is always trying to charge herself with the responsibility of helping out wherever she can. But when it comes time to ask for help, she wants to be able to do it on her own
+
+1. ### 19:55_]_Magnanimous_:_ 
+    
+    Both of them afraid of regressing.
+    
+2. ### _[_19:55_]_Magnanimous_:_ 
+    
+    Both of them afraid of growing and changing.
+
+—
+
+
+
+Проблема Старлайт с манипуляцией
+
+Сансет ЭЛЕМЕНТ ЭМПАТИИ
+Сансет боится встречаться с Целестией. There is so much I want to tell her, and so much I want to hear.
+
+после того как второе письмо падает
+Sunset: It looks like something that Discord would do.
+
+
+
+some thing in the laundry machine. It was 
+
+It felt ticklish. 
+Sunset had been catapulted out of the mirror, but this time she grouped up 
+
+
+Sɥǝ sʇǝddǝp
+She stepped
+
+
+
+
+Сансет: встреча Старлайт, меч
+Старлайт: вход в город, мейн 6, Старсвирл
+Сансет: башня Старсвирла, Дерево, Луна, хуйня со временем, пойдем чекнем Дискорда
+Старлайт: идут смотрят на статую
+
+
+"Thank you, Starlight." Twilight pulled herself back, giving the mare a warm smile. "I trust you completely."
+
+
+
+
+
+
+
+
+"We came to celebrate"
+"Alas, we all got duped"
+### 18:58_]_Estee_:_ 
+
+Starlight's "This would be so much faster if I just killed everyone" face.
+
+
+
+
+Draw me in the name of peace
+
+Charity (Rarity), Compassion (Fluttershy), Devotion (RD), Integrity (AJ), Optimism (Pinkie) and Leadership. Inspiration.
+
+Honesty and integrity. Kindness guide me. In Magic I trust.
+
+
+СТАРЛАЙТ ПОВ:
+
+Разговор о том как чейнджлинги шейпшифтятся.
+
+
+
+"Are you a changeling?" 
+
+Разговор со стражником
+
+
+Стража на входе в город никого не пускают. Сансет хватает Старлайт и телепортируется вместе с нею
+
+
+
+
+
+
+[9:04]Forcalor: Would you say that she is prone to take charge in situations at least, and more of a type of proactive, not reactive, protagonist? 
+[9:05]Forcalor: (though protagonists usually react anyway) 
+[9:09]EileenSaysHi: To an extent, but part of her growth is learning that she’s not always the most important person in the room, and that being a cheerleader for her friends has a worth of its own.
+[9:10]EileenSaysHi: I’ve enjoyed the way EqG takes a more egalitarian approach to who plays leader in any given special, as opposed to FiM becoming the Twilight show anytime the bad guy is sufficiently big. 
+[9:11]Forcalor: oh, now that's a good commentary to consider 
+[9:12]Forcalor: yeah, just great 
+[9:12]Forcalor: thanks
+
+Красивые цветы обрамляют спящую Луну
+
+
+Старсвирл прибывает позже. Он хочет забрать Старлайт, Сансет увязывается с ними.
+
+Сцена с мелом
+
+ПОВ: САНСЕТ
+**Sunset Shimmer**: Princess Celestia has a sense of humor? Looks like I'm not the only one who's changed.
+
+Про её чувства по поводу Целестии
+
+Старсвирл не может вернуться назад во времени из-за фулкрум поинта
+
+
+
+Maybe there is something stable at this day, or more specificaly at this time-frame
+
+Besides, someone is already using unsanctioned temporal magic. Can't you see?
+
+
+
+
+"You should smile more."
+
+clandestine - Done or [kept](https://duckduckgo.com/?q=kept+definition&ia=definition) in [secret](https://duckduckgo.com/?q=secret+definition&ia=definition), sometimes to [conceal](https://duckduckgo.com/?q=conceal+definition&ia=definition) an [illicit](https://duckduckgo.com/?q=illicit+definition&ia=definition) or improper purpose.
+
+The time is happening concurrently. It doesn't have the identifiable past, present, and future. 
+
+Старлайт прогоняет тесты и приходит в ужас. Оно детектит сотни путешественников во времени
+
+"Do you want to distort time-space further?" Starswirl asked wryly, ""
+
+"Because someone from the future is already trying to return back to this moment"
+
+Старсвирл подавляет time-space distortions
+
+Сансет приходит к выводу что она попала в параллельную вселенную
+
+"Could I come from a parallel universe?" Sunset nervously offered.
+
+"It might be plausible," Starlight rubbed her chin, frowning, but Starswirl shook his beard decisively:
+
+"Absolutely not."
+
+"But why?" Sunset blinked, "Everything is so different, that's gotta be it!"
+
+"No," he replied combatively, "More likely something had scrambled your memories, than something like [i]that[/i] occured."
+
+Behind his tone, Sunset noticed thoroughly concealed fear, and nodded just to placate the old guy. If he's so alarmed, she'll just try to fish the information from him later.
+
+Звезды
+
+Посм. то видео про параллельные вселенные
+
+Листочек падает перед 
+You should smile more.
+
+
+"Noithing to see here, just some childish frivolousness," Starswirl growled, "Was it one of you?"
+
+
+
+
+"What do you mean?"
+
+"I don't understand how you can use temporal magic for such frivolousness!"
+
+
+
+Почитать про параллельные вселенные
+
+
+What do you know about time travel?
+
+
+
+Из материи ушел оживлявший её дух
+
+Сансет изучает дерево пока на фоне Старсвирл пытается индоктринировать Старлайт
+
+Затем он бежит к доске, переворачивает её, и пытается записать формулу, бросает это дело, и утелепортируется проверить кое-что
+
+"No, it can be, too dangerous for you two." 
+
+
+"There's something with the tree."
+
+"What are you on about, child?"
+
+"It is as if the animating spirit has gone out of its matter."
+
+"Get away from there. This is beyond your comprehension--"
+
+"Just look at it." She grabbed him by a beard, "See?"
+
+Он видит что краешек листвы пожух
+
+
+
+
+1. ### _[_9:10_]_EileenSaysHi_:_ 
+    
+    I’ve enjoyed the way EqG takes a more egalitarian approach to who plays leader in any given special, as opposed to FiM becoming the Twilight show anytime the bad guy is sufficiently big.
+    
+2. ### _[_9:11_]_Forcalor_:_ 
+    
+    oh, now that's a good commentary to consider
+    
+3. ### _[_9:12_]_Forcalor_:_ 
+    
+    yeah, just great
+
 [Promising Cadence]
 
 

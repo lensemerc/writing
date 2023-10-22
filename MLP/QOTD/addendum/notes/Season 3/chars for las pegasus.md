@@ -9,3 +9,6 @@ https://mlp.fandom.com/wiki/Wind_Rider
 кози глоу
 
 
+The Washouts
+The Wonderbolts
+

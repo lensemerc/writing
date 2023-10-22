@@ -1,9 +1,160 @@
+1. ### 18:15_]_SIREN_:_ 
+    
+    im just imagining shes playing go fish in the cave with her guards + little girl while celestia is having the WORST week of her life
+    
+2. ### _[_18:16_]_Misty (arching the dark arc)_:_ 
+    
+    ![🤭](https://discord.com/assets/6ba3855f5ea79b9b014e66b28c54429c.svg)
+    
+3. ### _[_18:17_]_Misty (arching the dark arc)_:_ 
+    
+    I really love the imagery. I wanna make a sort of jokey recap of previous parts of the series later down the road, for those who didn't want to stomach all that dark narrative and whatnot, might use that now, lol
+
+Starlight: Чего ты боишься больше всего на свете?
+Остаться одной.
+
+
+Способность пожертвовать собой и своими интересами - вот что отличает благородство от "благих намерений", которыми вымощена дорога в ад
+
+Зекора и Старсвирл оба посещают Целестию пока Кризалис отсутствует и говорят о неминуемом пиздеце. Пока гепотеза что мир болен, и что Целестия должна остановиться
+Зекора знакома с Кризалис
+
+Зекора и Старсвирл оба хотят забрать статую Твайлайт. Целестия отказывает обоим.
+Зекора прибывает в обход стражи
+
+Зекоре несколько сотен лет
+
+
+Shear Page
+
+Fear is a lack of hope.
+
+Shorn Page притаскивает Cozy Glow с собой?
+
+
+Сомбра: Если ты прибудешь ко мне, Целестия, твоя маленькая падчерица умрет.
+
+
+Сансет влетает верхом на мотоцикле в Сомбру
+Кидает камни которые превращенные чейнджлинги
+
+
+Starswirl's familiar, the giant dragon
+
+
+
+Was is darkness... It is evil. Bloodshed...
+
+The Nightmare Queen
+
+"Oh come on, Luna... You're being too cynical. It's not healthy for you..." *she says, sighing.* "Chrysalis is anything but a mindless predator... I mean, sure, she's... a *predator*, but she's an intelligent being with complex desires and needs. She's not just mindless, not just her inner beast."
+
+*She gives her younger sister a little smirk.* "And I guess it was her inner beast that really wooed me."
+
+*Her eyes glow, as she leans down, pressing their foreheads together.*
+
+"I love her."
+
+--
+
+"Yes... She... **charmed** me." *Celestia whispers back, her voice still sounding sultry. She smiles softly.* "She did to me what she wished... just like a predator preying on its helpless prey... Her voice.. was so gentle and soft..."
+
+*She looks into her younger sister's eyes, and licks her lips.* "I felt **safe**... in her arms. As safe as a little filly in the arms of her mother..."
+
+"I could not resist her."
+
+--
+
+*Celestia smiles, and leans in towards her sister, whispering back.*
+
+"I've spent all my life with ponies that are afraid of *me*..." *she whispers, smiling.* "With her, I feel like I can be myself, I can open up... I can be vulnerable. It feels incredible."
+
+"And... she makes me feel **alive**."
+
+*She chuckles, before turning back to her breakfast.* "If this is what being in love feels like, I want **more**."
+
+
+"Oh, don't be a party pooper, Sister!"
+
+Кризалис случайно факапится фальшивым именем Флури Харт, и дальше они говорят в напряженных тонах, зная кто есть кто
+Сцена обрубается когда Каданс пытается покинуть помещение
+
+They tried to muzzle her, Starswirl. The Cosmic Council. What did you do? I got rid of them. It's just as I thought. You were corrupted long time ago. No. They just tried to muzzle her. That's all.
+
+
+I think I've earned the right to be a little self-centered, Celestia replied grumply, and then broke into a short melodious laughter, Oh, just _listen_ to me...
+
+
+Not willing to give up, Twilight attempts to forcibly separate Stygian from the Pony of Shadows in order to save them. Together with Starlight, they try to drag Stygian out by his hooves but require more magic energy to do so. Starswirl, finally seeing his error and now wanting to save Stygian instead of banish him, has everypony redirect their magical energy to forcing Stygian and the Pony of Shadows apart instead of pushing them both through the portal. They succeed and the shadowy energy creature gets sucked into the portal without Stygian.
+
+The team climb out of the large hole leading to the Well of Shade and are surprised to find that they still have the Elements of Harmony, with Fluttershy suggesting that their use of the elements to save Stygian instead of doom him was the reason they didn't disappear.
+
+Starswirl pulls Stygian out of the hole, reconciles with him and expresses his regret for believing Stygian betrayed him and the Pillars. He also gives an apology to Twilight for not seeing the magic potential of friendship, which goes a long way toward repairing the damage Starswirl did by treating Twilight so brusquely and angrily putting her down over the course of the adventure.
+
+Starswirl also is called out for dismissing and disrespecting Starlight's suggestions that there was a solution other than banishment and the map only ever calls for solving friendship problems. Starswirl admits he owes many apologies and has the good grace to look abashed for dismissing Twilight and Starlight, insisting only on his "my way or the highway" approach.
+
+"Why am I always at war with myself? Why have I told, as if upon compulsion, what I knew all along I ought to have withheld? Why am I making a friend of this woman beside me, in spite of the whispers against her that I hear in my heart?" - Our Mutual Friend by Charles Dickens 
+--- в эпиграф первой главы Целестии
+
 https://www.fimfiction.net/story/357977/12/time-enough-for-love/12-the-future 
 что-то про любовь тут, посмотреть
 
 I am the edge of peace. Devoted one, draw me against the enemy of life.
 
 Мельница - Обряд
+
+*You hear a quiet, dignified sigh and an almost inaudible whisper. From her throne, Princess Celestia listens to that story with sorrow. Her eyes are clouded, her stare distant, lips parted slightly, yet no one else in the throne room is able to see.*
+
+*Her horn shimmers with a white glow, her whole body illuminated by a golden glow from the large glass window right behind her. She looks as if she carries the weight of the world and all its sorrows upon her shoulders.*
+
+It hurts to know the truth. I wish none of it was true.
+
+
+Хаос-Сансет сталкивается с Луна-усиленной Старлайт
+
+
+
+Сомбра присылает пораженного захваченного пони кристального пони в Кантерлот. Тот говорит с Целестией, потом почти одолевает Кризалис. Целестия решает спасти её в последний момент
+
+
+Sombra: Is that you, Discord?
+
+Hey, you told me that you won't intervene!
+
+I did, didn't i? тискает её за щечки Guess I'd better go then, and all because you did ask me so [i]nicely[/i]
+
+![[Pasted image 20230917195602.png]]
+
+I need to beat that guy into a pulp
+
+My beautiful Agent of Chaos, don't you remember? It's not what we are here for. Beating the bad guy down is a [i]hero's[/i] job.
+
+
+ночные пони могут использовать силу Луны (как варлоки) после того как она выдает им её
+
+It's time for me to shower with you my power.
+
+Передает силу Старлайт, описать с её пова
+
+
+Кризалис пристреливает пегасуса на расстоянии, прищурив один глаз
+
+
+Хаос Сансет вкатывается в Понивилл с рок-оперой и динамо-машиной испускающей дым, играя на гитаре
+
+
+"Do you know what darkness is? The darkness is of those who are forlorn, who are not [i]permitted[/i]. 
+
+Разговаривает через своего слугу
+И воронов
+
+
+
+
+
+I don't desir
+
+
 
 Кристал Эмпаир - мотиф снежинки
 Снежинка на жопе у Аморы
@@ -75,6 +226,7 @@ You aren't supposed to. Light had led you astray by a promise of normal life, a 
 Кризалис Целестии, когда прилетает в гриффин кингдом с новостями:
 Be safe. целует
 
+Sombra:
 Потому что все мы – мягкие и слабые. И даже в зрелости мы маленькие плачущие дети, нуждающиеся в любви, внимании или хотя бы ненависти. Мы достаточно глупы, чтобы иногда вызывать друг у друга серьезные эмоции – и в этом помутнении ума заключено наше счастье, потому что на самом деле никто не нужен никому.
 
 We are all soft and weak. Even when we are mature, we are still little crying children, aching for love, attention, or at least hate. We are stupid enough to induce real emotions in others, and in this delusion lies our happiness, because in truth, no one needs anyone else.

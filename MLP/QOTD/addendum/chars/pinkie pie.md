@@ -21,3 +21,13 @@ Billie Bust Up
     
     also awesome animation
 
+Перрито из пус ин бутс
+https://www.youtube.com/watch?v=fUkRmhcbIoA&t=64s
+
+Give us all your bootey!
+
+
+https://www.youtube.com/watch?v=cyBhqatliyE&t=1s
+
+
+![[Pasted image 20231004185000.png]]

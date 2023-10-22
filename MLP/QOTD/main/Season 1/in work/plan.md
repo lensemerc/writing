@@ -9,3 +9,4 @@ Shorebound (раб название)
 Переписать пролог с Луной. adds to notes: work on short description game, expunge lavender unicorn mercilessly
 
 6 историй
+
