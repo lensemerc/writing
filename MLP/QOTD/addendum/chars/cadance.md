@@ -1,5 +1,15 @@
+Имя для сына Каданс:
+Night Shade ? Knight Shade
+https://mylittleponyg1.fandom.com/wiki/The_Shadowettes
+
 Every time I close my eyes, I see nightmares.
 
+Love and war so close to one another...
+(фальшивая аморе)
+
+афродита / венус см.
+
+Achilles points out that Aphrodite is a terrifyingly competent warrior, with the ability to fell nations and stir armies to action by playing on their emotions to manipulate them, to the point that Achilles is both afraid of, and admires how truly dangerous Aphrodite is, which is a side of her that's often ignored that I was super stoked to see referenced in the game.
 
 The first thing any diplomat learns is to protect their weak spots
 

@@ -1,6 +1,14 @@
+https://www.youtube.com/watch?v=uDLZjg5xfQI
+# Миграция - это круто | Михаил Пожарский
+про ценности диверсификации рас и национальностей в стране. смотреть
+
 https://www.fimfiction.net/blog/767382/notes-on-equestrian-government-structure-headcanon-obviously
 
 Equestria is a monarchist state where I, Queen / Princess Celestia, rule as the Monarch alongside my sister Princess Luna. Our rule is the only thing that stands between Equestria and its impending doom by external threats and the chaos of civil war. We are responsible for providing a sense of order and stability in a world where magic, supernatural creatures and fantastical artifacts can easily derail your average pony's life. Our government is a monarchy with a semi-constitutional nature. Certain matters in Equestria are handled by the Equestrian Parliament, the government body that represents the views and interests of Equestria's different races and species.
+
+Northern Equestria
+Southern Equestria
+Central Equestria
 
 
 My advisory body consists of various different ponies working together to ensure the security and well-being of Equestria. It is comprised of many ponies, including members of the various races and species of Equestria and a number of my closest friends and allies. There are also a number of ponies who provide specialized council in their own fields, which also provides valuable perspectives and advice to me regarding the issues facing Equestria. I believe it is best that the views and input of various different ponies are taken into account in making important decisions that will directly affect the lives of all Ponykind.
@@ -11,11 +19,11 @@ Yes, that is correct. I have officially stepped down from the position of the Qu
 The internal ministries of Equestria, representing the various aspects of the nation, are:
 
 1. The Ministry of Health and Wellfare  - responsible for the well-being of Equestria's population and infrastructure. Buster Brown
-2. The Ministry of Agriculture
-3. The Ministry of Arcane - responsible for the regulation and management of magical artifacts and other dangerous magic. -- Lord Puppy Eyes
+2. The Ministry of Agriculture 
+3. The Ministry of Arcane - responsible for the regulation and management of magical artifacts and other dangerous magic. 
 4. The Ministry of Education and Culture - responsible for Equestria's educational system and research. EEA (Equestrian  Education Association). Chancelor Neighsay
 5. The Ministry of Finance. -- Lord Shorn Page
-6. The Ministry of Justice
+6. The Ministry of Justice -- Lord Puppy Eyes
 7. The Ministry of Industry -- оверсир андерсити. Chancellor Cookie Cutter
 8. The Ministry of Foreign Affairs - responsible for maintaining Equestria's foreign relations, trade and diplomacy. -- Какая-нибудь зашоренная баба Surprise
 

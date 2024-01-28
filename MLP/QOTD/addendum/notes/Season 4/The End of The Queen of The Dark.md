@@ -23,6 +23,31 @@ Oh, but love is power...
 Something inside her, little by little, gone numb.
 
 
+DESPAIR.
+
+Энтропия хочет чтобы Кризалис была в отчаянии.
+
+DESPAIR.
+
+
+Целестия умирает. ВСЕ УМИРАЮТ
+Кризалис остается один на один с силой Энтропии. 
+Труп Целестии начинает разлагаться, но Кризалис целует её и вдыхает жизнь
+Она плачет золотыми слезами магии
+Вся любовь которая была в ней никуда не ушла
+Она использует это всё чтобы возродить мир
+
+Она замечает НАРРАТОРА в конце The Past
+И ЭТОТ НАРРАТОР ЭНТРОПИЯ
+Энтропия становится видна как драконикус в The Present
+
+Will of the Entropy
+a will of the Cosmos
+
+Love is the only thing that can save us.
+
+
+
 *Celestia nuzzled back, smiling warmly at the changeling queen.*
 
 "That's the thing, my love... **Your love** is what's keeping this world alive. Your love, your ferocity, your fire... It's all **one and the same** with the fire of life. If you burn this world away, it will be reborn **by your** flames. You're not a parasite, Chrysalis, you're the **source** of love. What I love is **You.** Just you."

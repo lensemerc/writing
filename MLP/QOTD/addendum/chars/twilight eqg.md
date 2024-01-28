@@ -1,0 +1,3 @@
+1. ### _[_0:48_]_EileenSaysHi_:_ 
+    
+    Twilight, unsurprisingly, has the starkest differences. Her pony self, unless you treat Clear Coordinator as canon, grew up in a welcoming, open environment with a caring authority figure that helped her cultivate her full potential, with her lack of friends a result of temperament/personal choice. Her counterpart, on the other hand, grew up in a hostile, disapproving environment with a cold authority that denied her opportunities to make social connections and left her with a pervasive sense of learned helplessness.

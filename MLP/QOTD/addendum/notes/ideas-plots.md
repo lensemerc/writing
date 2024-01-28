@@ -4,14 +4,219 @@ https://www.fimfiction.net/story/540211/ascension-abdication-or-abduction
 https://www.fimfiction.net/story/520470/and-so-i-left
 написать в похожем стиле
 
+Эпплджек -- охотница на чудовищ
+Рарити -- рулер Кристал Эмпаир
+Флаттершай -- в Кристал Эмпаир
+РД -- Лас Пегасус
+Твайлайт - МИА
+Пинки Пай -- андед? пират? шут?
+
+Northern Equestria
+Southern Equestria
+Central Equestria
+
+мифы афродиты посм.
+
+The Lady of Flies -- энтропия
+
+Имя: Lady River
+
+Mellow Twinklestar meets Sunny Starscout
+
+The Rat King
+
+Концептуализм против диентологии
+
+7:15]Tipper: "I am not alone" is a good thing to tell yourself. - QOTD I
+[7:15]Tipper: "You are not alone" is a good thing to be told. - QOTD II
+[7:15]Tipper: And "We are not alone" is a good thing to say with someone by your side. - QOTD V
+
+1. ### 7:09_]_Bright Ops_:_ 
+    
+    You know, watching this... I realize that you could create a 'Chaos Pony' faction akin to the Chaos Dwarves really easily. Namely, the idea being that during the original exodus to Equestria, some settlements of ponies either stayed behind or were cut off from escape... and in their dire moments something dark offered to save them. [https://www.youtube.com/watch?v=OiHvsinEn58](https://www.youtube.com/watch?v=OiHvsinEn58 "https://www.youtube.com/watch?v=OiHvsinEn58")
+    
+    [YouTube](https://www.youtube.com/)
+    
+    [Total War](https://www.youtube.com/channel/UCugJq15BiB-c1NDYPHiznWQ)
+    
+    [Total War: WARHAMMER III - Forge of the Chaos Dwarfs](https://www.youtube.com/watch?v=OiHvsinEn58)
+    
+2. ### _[_7:17_]_Forcalor_:_ 
+    
+    Oh, I like the idea of that. _adds to the list_
+    
+3. ### _[_7:17_]_Forcalor_:_ 
+    
+    Seems like a comparably good explanation for shadow ponies from the comic
+
+1. ### _[_21:56_]_Forcalor_:_ 
+    
+    Next you tell me that earth ponies in G4 can withstand magma
+    
+2. ### _[_21:57_]_Forcalor_:_ 
+    
+    ...
+    
+3. ### _[_21:57_]_Forcalor_:_ 
+    
+    _adds a few notes_
+
+Целестия купается в магме активного вулкана
+
+Третий брат Хелиоса и Селены (Селестии и Луны)
+Eos
+
+ПЕРСОНАЖ ТИПА СЭМА/ИМОЕН
+
+Прото-пони которые просто существуют чтобы выполнить предназначение с кьюти марк
+Как Мисикс из Рик и Морти
+
+
+Chiron traning heroes
+
+
+Толстушка Tender Night
+
+Кризалис протыкают насквозь чтобы убить кого-то
+
+Mystery game 'Who is the changeling'
+
+https://youtu.be/UvS0mArxpyo?si=M9SgIwtVzdq65MF7&t=9180
+sense of adventure. как написана Тиранда+Малфурион
+
+РЭЙН СТОРМ КАК ТИРАНДА
+FACTIONS https://youtu.be/UvS0mArxpyo?si=v0LpUdDYLT7CjMcr&t=9786
+
+Целестия оставляет метку копытом
+
+Write about factions that exist on the other side of the world
+Вставить что-нибудь из ASOIAF (игр престолов, лоровое видео)
+
+Cosmic Spectrum gem
+который носила Призмия? из Twilight Sparkle and the Crystal Heart Spell
+
+
+Целестия и Луна поддерживают Твайлайт в её сражении против Опалин, пожирающей время и пространство
+
+
+Посреди войны все, на одну ночь, все поют песнь как в Christmas Carol in WW 1
+## [Silent Night: The Story of the World War](https://time.com/3643889/christmas-truce-1914/)
+
+
+Flutter Ponies
+
+1. ### _[_11:06_]_Forcalor_:_ 
+    
+    ponies with gems in their eyesockets are rad
+    
+2. ### _[_11:06_]_Forcalor_:_ 
+    
+    _adds to the notes_
+    
+3. ### _[_11:07_]_Forcalor_:_ 
+    
+    Top-tier MLP unexplainable weirdness, if you ask me
+    
+4. ### _[_11:07_]_Forcalor_:_ 
+    
+    it _supposed_ to be slightly like a fever dream
+
+1. ### _[_13:31_]_Snowy Haze_:_ 
+    
+    Because a wizard enslaved them to mine gems and the constant reflections blinded them
+    
+2. ### _[_13:31_]_Snowy Haze_:_ 
+    
+    Then Applejack killed the wizard
+    
+3. ### _[_13:32_]_Snowy Haze_:_ 
+    
+    And put gems in their eyes to help them see by magic
+
+Рабы пони с камнями вместо глаз
+
+1. ### _[_14:34_]_Forcalor_:_ 
+    
+    an actual unicorn
+    
+2. ### _[_14:35_]_Forcalor_:_ 
+    
+    ...
+    
+3. ### _[_14:35_]_Forcalor_:_ 
+    
+    _writes it down_
+
+
+
 
 - ### _[_12:02_]_Flovv Krovv_:_ 
     
     Энтропия убеждает Каданс в циничности Потом говорит I lied, и убивает её в конце. Романтичная любовь существует. И имя ей Кризалис
 
+I am the Lady of the Thousand Masks
+
+замиксовать сюжеты сказок сапковский-стайл
+
+тот артефакт который заставляет говорить правду
+
+вендиго похищают детей
+
+Целестия и Кризалис дуэт где Каданс третье колесо (комедия)
+
+
+вдохновиться норнами
+Королева Прошлого
+Королева Настоящего
+Королева Будущего
+
+
+без хоста зеркальное измерение медленно регрессирует к "заводским" установкам
+Твайлайт помещает разум зеркальной Твайлайт в тело своего Спайка
+
+
+история по мотивам того как Лана всех в вове наебала
+
+Сцена с шестью Кризалис потипу адвентур тайм епизод 8 стейкс
+Каждая имеет определенную силу
+
+Персонаж типа Короля Уу/того чувака из книг где клевый варвар и телка и наемничья компания. Коска?
+
+
+Чейнджлинги разводят пони на бабло
+
+
 ### 5:43_]_Flovv Krovv_:_ 
 
 Твайлайт из tQotD, которая почти потеряла надежду, встречает Твайлайт из оригинала. Они говорят о том как все живые существа это магия и любовь, и даже простое дыхание это акт любви. Потом асцендед твайлайт оказывается духом любви, ридимед Кризалис. Твайлайт понимает это, но не злится Beautiful fantasy, isn't it?
+
+Имя «Завулон» взято Лукьяненко из [Ветхого Завета](https://ru.wikipedia.org/wiki/%D0%92%D0%B5%D1%82%D1%85%D0%B8%D0%B9_%D0%97%D0%B0%D0%B2%D0%B5%D1%82 "Ветхий Завет"), где тот был одним из двенадцати сыновей [Иакова](https://ru.wikipedia.org/wiki/%D0%98%D0%B0%D0%BA%D0%BE%D0%B2 "Иаков") и последним из шести сыновей, рождённых Лией. В песне Деворы из Ветхого Завета говорится: «Завулон — народ, обрекший душу свою на смерть». Имя «Гесер» взято из монголо-тибетского [фольклора](https://ru.wikipedia.org/wiki/%D0%A4%D0%BE%D0%BB%D1%8C%D0%BA%D0%BB%D0%BE%D1%80 "Фольклор"), где тот был одним из первых борцов с силами [хаоса](https://ru.wikipedia.org/wiki/%D0%A5%D0%B0%D0%BE%D1%81 "Хаос"), истребителем [демонов](https://ru.wikipedia.org/wiki/%D0%94%D0%B5%D0%BC%D0%BE%D0%BD "Демон"). При этом мифологический персонаж не был идеальным и символом добра. По словам писателя, оба имени были выбраны «методом научного тыка». Лукьяненко взял «Мифологический словарь» и случайным образом выбрал два имени, описания к которым вписывалось в роль будущих персонажей[[6]](https://ru.wikipedia.org/wiki/%D0%9D%D0%BE%D1%87%D0%BD%D0%BE%D0%B9_%D0%94%D0%BE%D0%B7%D0%BE%D1%80_(%D1%80%D0%BE%D0%BC%D0%B0%D0%BD)#cite_note-dozorfaq-6).
+
+
+ацтекская мифология
+
+1. ### _[_21:37_]_LurksNoMore_:_ 
+    
+    Kirin vs. Chrysalis: [https://derpibooru.org/images/2757854](https://derpibooru.org/images/2757854 "https://derpibooru.org/images/2757854")
+    
+    [Derpibooru](https://derpibooru.org/)
+    
+    [icey](https://twitter.com/icey_Starr/status/1466801832919928834?s=20)
+    
+    [#2757854 - safe, artist:icey, cinder glow, maple brown, queen chrys...](https://derpibooru.org/images/2757854)
+    
+    [](https://derpicdn.net/img/2021/12/3/2757854/large.png)
+    
+    ![#2757854 - safe, artist:icey, cinder glow, maple brown, queen chrys...](https://images-ext-2.discordapp.net/external/nICRmNlxi3AqXgHXpj309hO-_5RRaBnYQQY4T_zj0-w/https/derpicdn.net/img/2021/12/3/2757854/large.png?width=400&height=222)
+    
+2. ### _[_21:38_]_FanOfMostEverything_:_ 
+    
+    The Stream of Silence would probably do _very_ nasty things to a changeling.
+    
+3. ### _[_21:39_]_Forcalor_:_ 
+    
+    gotta look into it
+
 
 
 Megan как Финн из Адвентур Тайм

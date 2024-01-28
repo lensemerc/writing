@@ -4,6 +4,7 @@ Creatures of the Dark - Part 2
 Crescentic Nightmare Moon (в Сезон 3)
 She Reigns (афтермаф для второго сезона и что-то логически переходящее в Триумвират. Добавить анимацию здесь)
 Lord of the Sheep
+The Rat King -- вдохновлено Adventure-Time-with-Finn-Jake-Season-06.t307/Episode-011-012
 
 первая встреча Целестии и Луны в детстве
 

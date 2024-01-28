@@ -15,7 +15,11 @@ I think romantic love defines itself by conflict. That includes what happens aft
 
 "Love is a consuming [b]power[/b], right... And yet all those sentiments are a distraction, for one consumed by it they can be weak, susceptible to being used. Love is a selfish act, and through that selfishness, all involved suffer. It can be both the greatest strength and the most dangerous of flaws. For the unwise, it is all the reason to guard your heart, not becoming slave to your emotions and passions."
 
-True love is a lie. We pretend to care for another, when it is we who seek the comfort that another provides us. I cannot respect love, when it is a lie. That there are two versions, a true version and an accepted lie, is perhaps it's own commentary on its value in society."
+True love is a lie. We pretend to care for another, when it is we who seek the comfort that another provides us. 
+
+I want your every act to be filled with love, girl. Do you understand?
+
+I cannot respect love, when it is a lie. That there are two versions, a true version and an accepted lie, is perhaps it's own commentary on its value in society."
 
 "A wise observation, if somewhat sentimental in its outlook. But love does indeed shape our existence, giving it purpose and direction.  It can bring out the best and worst in us, and it can define our very being. It is for that reason that we must guard our hearts, lest we allow ourselves to become slaves to our emotions, or worse, turn to hate and destruction."
 

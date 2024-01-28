@@ -7,3 +7,9 @@ Burn away...
 
 
 You aren't a queen. You were nothing but pawn.
+
+Lady of the Mayflies
+
+
+ЭНТРОПИЯ заканчивает фразы на Respond.
+Вдохновиться Хаосом из Гадеса

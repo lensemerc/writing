@@ -12,6 +12,25 @@ element of empathy
 
 Creatures like you are imperative to bring the balance
 
+"Everything I know, I learned from you, Princess."
+
+1. ### _[_21:52_]_Forcalor_:_ 
+    
+    do Sunset even have this kind of chemistry with anyone else?
+    1. ### _[_21:52_]_Vinylshadow_:_ 
+    
+    not to _this_ degree with anyone else, no not as blatent or intentional
+    
+2. ### _[_21:52_]_Forcalor_:_ 
+    
+    I see
+    
+3. ### _[_21:53_]_Forcalor_:_ 
+    
+    _makes notes_
+
+какой-то из фильмов с Сансет и Пинки где они застряли в тайм лупе
+
 https://www.youtube.com/watch?v=8b3jn79nhbE
 I love that Finn basically "inherit" some of his father senility and antisocial behavior with the caring and empathic philosophy of his brother Jake, that also took care of him. He is basically a violent empathic.
 

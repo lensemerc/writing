@@ -1,3 +1,0 @@
-One day she looked at a creature crawling upwards at the surface of the glassy quartz. The dull-minded being knew nothing of the world around it, remaining plain in its ceaseless endeavor, ignorant of anything else. The crystal was too slippery for it to hold on, and yet after each fall, it tried again and again, beginning the ascension without any purpose, in a struggle that it couldn't ever possibly comprehend.
-
-"Ah..." she said back then, "Aren't you, puny one, the most beautiful thing?"

@@ -1,3 +1,468 @@
+[quote]I have felt her lulled by my softness, exultant in my love, passionate, possessive, jealous. I have grown on her, not bodily, but like a vision.[/quote]
+
+𒄈 [b][size=1.1em]F[/size][/b]or
+
+
+
+
+[quote][center]I cannot undo my choices, 
+I cannot undo my mistakes, 
+All I have learned in the end is to suffer in silence, 
+And accept the consequences of my actions.
+I cannot undo what I have done.
+But, I can learn from it, 
+And I can change for the better, 
+And I can live with the pain.[/center][/quote]
+
+There's nothing more true to us than hungers and desires... The [b]powers[/b] that move the world itself.
+
+
+[center]ᴛʜᴇ ᴇɴᴅ
+ᴏꜰ ɪ[/center]
+
+I envy you.
+Your self-confidence, the pride you take in who you are, your lack of shame...
+"I could never hate someone who is just so unapologetically *themselves*! I have tried so hard to be someone who is *perfect*, someone who has no faults or weaknesses, someone who can be admired... But you are just being *yourself*! If I could ever learn to be more self-confident and take pride in what I am... I wish I could have a tenth of your self-awareness and confidence. I should have been proud of what I was, but instead, I ran from it!" *She stares back at Chrysalis, clearly overwhelmed.*
+
+
+How trivial.
+
+
+
+
+The most powerful being in Equestria is here, at my grasp.
+And I can't do anything with it.
+
+"It's not fair! Why am I supposed to feel all of this shame and guilt about the kind of feelings that you express so freely? Can I not live without feeling like I'm sinning every time I let go of myself? Can't I have some of your self-confidence without feeling like I'm less of a princess for it? It's unfair! It's *so* unfair!" *Her eyes start to well up and she clenches her fists together, her tail shaking vigorously.*
+
+
+You remind me of someone I knew very long ago.
+
+
+The weakness have no place in love, you know.
+"I have always considered love to be... A weakness that is impossible to truly achieve. A temporary and fleeting feeling that is never enough to satisfy ones desires. But... I understand something now. I understand that it is not about the desire, but the need for others' feelings. I don't want somepony whose presence is weak and insignificant... I want somepony who can match my emotions and desires, somepony who can be more than just an observer; somepony who can be my equal."
+
+
+*Chrysalis smiles back at her, and her eyes seem to sparkle with amusement.* "It is very interesting you should ask that. You see, I crave for the kind of admiration and love that only a **queen** can bring. To be able to take something as powerful as love, to shape it and mold it and turn it into something that I can use to take command. That is the kind of power I seek. Can you *understand*? I'm not sure you'd even have any use for it, given your strong sense of morality and devotion to the Equestrian people."
+
+*Celestia takes a moment to think, and she gives a small nod of understanding as she begins to formulate her answer.* "I believe I do understand. As much as I love the Equestrian people, my desire to be loved back sometimes supersedes my duty to protect them. I want sompony special to love me, to devote themselves to me, to worship me with blind devotion. I want to be worshipped, to be praised, to be revered the way you crave, Chrysalis. I want that feeling of power just as much as you do."
+
+Chrysalis snickers, and outstretches her hooves in Celestia's direction. "Come here." She beckons curtly. "I know that you are Queen, just like me. You must understand..." her eyes gleam in satisfaction. "**Everything** is a form of power in this world... To live is to have power over yourself and others. It is a constant exchange, a constant relationship, a push and a pull..."
+
+"I understand that all too well. I have power over Equestria, over ponies, in my position as a ruler. But you've made me realize the other half of that relationship. I may have power over *them*, but I am also vulnerable... I am not the one in control, I am not the one who has the power... because all this time, I have been *powerless* to control my feeling of desire for being loved and adored. I desire that just as much as you. That is my weakness, Chrysalis."
+
+*Celestia lets out a soft moan as Chrysalis kisses her deeply, her eyes closing and her breathing becoming heavy and quick. Her body shudders with excitement, as her lips part and she returns Chrysalis's kiss eagerly.*
+
+"Never again will I have to suppress myself, never again will I pretend to be something that I am not. I have found my freedom through you, Chrysalis. Your confidence, your unassailable pride... It all ignites something within me. I have finally found my freedom through you, and I will never go back."
+
+Embrace all the things that you are.
+
+
+The conflict of the world is irreconcilable. Harmony is a lie.
+
+Don't waste your time on guilt and shame... You are better than that. Not a martyr. You are their Queen.
+You always did what you had to do.
+Nobody is perfect.
+
+Is this where you snap my neck?
+
+Кризалис молчит.
+
+Or you want to use me first?
+
+Кризалис продолжает молчать.
+
+This thing between us will never work. Целестия говорит как с ребенком.
+
+
+
+I want to be loved. I want to be needed.
+
+
+No one are intended to be happy.
+
+
+Человек не создан для счастья. Существуют вещи более важные, чем счастье.
+
+
+Why would you think that everything is beautiful?
+
+Because I live for myself. I love myself. I am true to myself. I am a monster, and I want to exist.
+
+
+Fade into the ether... Into blissful nothingness... Away from all this.
+
+My years carried me far longer than it was intended. My reign must end.
+
+
+
+Why? Because we shouldn't be doing it?
+
+
+
+You try to poison my soul, Chrysalis.
+ 
+
+
+The stronger the Light is, the stronger the Dark. It is the reality's response.
+
+
+Harmony has no place for wildhearts such as me.
+
+
+
+Trust me to lead them down the right path.
+There is still much healing to be done.
+we will have to do everything in our power to ensure that Equestria is a safe and prosperous land for all its inhabitants.
+With you by my side, as we shape Equestria into the image of a bright future we envision.  
+_Her white wings fold down, and she wraps them around Chrysalis._  
+We shall bring out the greatness of our people. Together, we shall take them to heights unthinkable before our rule.
+we are not here to replace the old Equestria, but to mold it into something better. Something stronger. Something that will stand the test of time and all the trials that life throws our way.  
+_She strokes Chrysalis's cheek with one hoof._  
+We are here to create a country that not only will prosper... but will thrive.
+
+
+Let's shake up each other and bring each other to life because you do so much to stir my blood and bring me alive, even in the most painful ways."
+
+Well intentions is a lie. Even if the whole system is built on them, it is inevitable that it will become corrupt.
+
+compassion and benevolence alone could hold the world together and change it
+
+Twilight Sparkle was the first one to really start making sense of it all. I knew that she would lead Equestria to a new and happier era, and that she would be the one to usher in the future for ponies. My little purple alicorn was always destined to guide the ponies into an eternal autumn of happiness and progress. I just had to let her find her own way of doing so."
+
+The hardest times lead to the greatest victories. Peace is stagnation. Lack of fear is death.
+
+
+The birds can sing. And we can learn to sing too.
+
+
+"You don't say. Having this mortal coil of yours feels like incarceration to you?" The Queen hummed.
+
+
+Opening yourself up is painful.
+
+
+"This is an awful feeling." Chrysalis, когда она пытается открыть себя
+
+
+
+When I look at you I see someone who wasn't supposed to rule. I think you were supposed to be free and untamed.
+
+
+В башне
+
+Кризалис ржет
+Я знаю кто ты такая!
+
+Затем спич Короля из Адвентур Тайм
+
+
+*Luna's ears go back again when she hears the changeling claim that their ruthless nature is "purer" than that of other races. She hates how much truth is in Chrysalis's words. She hates how much sense they make. She hates how the Changeling Queen does make a logical, albeit still harsh and uncompromising, argument. Why should there be something inherently wrong with their nature just because it doesn't fit in with the rest of Equestria's image? Perhaps there is... something to this...*
+
+
+I won't be losing my conscience.
+
+You want the world to work in concert... So every voice will have its own place...
+
+
+Celestia tilts her head to one side as she looks into the green eyes of the Queen. Chrysalis... Do you know what 'tamed' means? If you tame it, it will become docile and obedient... Why would you want to tame true love? The very idea of tame, of a tamed beast, seems to fly in the face of the idea of true love. Are you trying to tame your love for me, Chrysalis...?
+
+
+"Our enemies are never as evil and we are never as noble as we think" -- из DCAU
+
+She felt vulnerable and transparent.
+
+
+I already died hundreds of years ago. It doesn't matter what happens to me. 
+
+Here it is. Now I understand... You have the power... Knowledge? Aplenty. You have wisdom, you are magnificent, forever young... You're not empathetic. 
+
+
+Chrysalis pulled closer and nuzzled into her.
+"We are going against the design, you know..." She giggled, groggily. "Against the shackles of fate and destinies... Against who we *are* and *what* we should be doing and with whom." Her eyes sparkled in amusement. "How does it feel to be a rebel, my Celestia?"
+
+
+"Like liberation," *the alicorn breathed, closing her eyes in pleasure.* "A rebellion against who we are and are thought to be, the rebellion against our roles in life. It's exhilarating in a way... Being able to let go of my duties, my titles, my responsibilities... To be able to be free. The mare that you make me feel like is new to me, but I feel alive as her..."
+
+
+I know. I had hundreds of years to refine it. To make it a process, a skill. 
+
+
+
+I cannot imagine the world without you, my powerful Sun.
+
+
+The stronger you push against the Dark, only stronger it will become in response. There never will be a perfect world equinox...
+
+"I may have the power, and the knowledge, but I lack **empathy.** That is my weakness. That is my struggle. I'm so disconnected from my subjects that I don't understand their struggles, and I'm forced to rely on others to understand."
+
+"That's why I need you. You are what I am not."
+
+
+После того
+
+Mad?
+How is it madness 
+
+How can you change the world if you follow the rules? 
+I want to be here for every step...
+How can you live for hundreds of years and not become mad? No one is supposed to live that long, after all... 
+
+
+"I was happy. I was content. You took it from me."
+
+Разговор про hate 
+про то как видела пони
+dying in dirt and darkness
+
+"Because I... I... I want you to become stronger... So I... I... I... would become more stronger, too."
+Смеется истерично.
+Целестия смеется тоже.
+
+Seems like I've fallen.
+
+Кризалис падает на спину от смеха и смотрит на небо
+The stars are beautiful, aren't they?
+
+They are.
+
+The whole world is beautiful to me... The whole world is beautiful already as it is. It doesn't need your Harmony.
+
+
+Why no one understands... that strength is not enough.
+
+Twilight and Cadance, Friendship and Love cojoined in guiding the world toward the new, glorious era of prosperity. 
+
+
+To me, every star in the sky is like another one of my sisters.
+
+We are all made of stars, in a way.
+
+
+The harmony is a lie... We are a lie...
+
+It is in our power to make any lie a truth.
+
+
+"Oh, my love!" *Celestia nuzzled back, her wings caressing Chrysalis from the back. She pressed her body against Chrysalis, their muzzles almost touching.*
+
+"What a fool you are for saying such a delightful thing. You are the *best* bad girl." *the Princess said with a flirtatious giggle.* "I... I could *never*, not in a million years, have seen myself falling in love with such a creature as you."
+
+*They kept gazing at each other, as if their eyes weren't able to let go of one another.*
+
+
+
+Chrysalis hummed, but she couldn't stop herself from smirking. She sat more straight, looking intently into the alicorn's eyes, and then sighed slowly and deeply. She lowered her eyelids, thinking, that glanced aside.
+"I **adore** you." She said quietly, and then frowned. "No. It's more than that. I enjoy your strength and determination. I despise Harmony, but you believe in it fully. You strive to it, despite everything, despite all disillusionment of the world. You believe in the love for all, even in face of the objective truth. You're **mad**, Celestia. Hundreds of years made you truly maddened. Obsessive with this idea that the world can be fixed." Chrysalis chuckled. "And I am mad too. And I love seeing this unyielding strive in you. Even if you don't understand this peaceful coexistence yourself, no more than I, you **still** keeping reaching for it..." The Changeling Queen looked at the alicorn thoughtfully. "I can't help but admire it..."
+
+*Celestia chuckled softly, her voice still carrying that raspy quality but still sounding surprisingly gentle and soothing at the same time.*
+
+"Yes... I am mad, and... in my madness, I've found a way to make this world better." *she whispered softly, her mane and tails blowing in the subtle breeze that passed through the throne room.* "It is true that I do not fully understand this "peaceful coexistence," as you call it, but it is something that I want nonetheless."
+
+*She looked down at Chrysalis's head, smiling warmly. Her wings unfolded fully.
+
+"Hmm, my dear, you know more than you let on." *she whispered warmly.* "It is true that Harmony can appear like a distant dream... But to me, it's a dream worth pursuing."
+
+"You're right. I am stubborn, and sometimes, I've been wrong. Even in my youth, I let emotions cloud my judgment." *she sighed.* "But a part of me always believed in a better, more united nation. And... to be honest, my beliefs haven't been shaken. I still think that the world... **can** be saved."
+
+
+You know, they always shifting, always reinventing themselves... It is fascinating, right?
+
+I know my love is a strong force, and it's true that I'm as broken as the world around me, the world I've spent my life trying to fix. In a perfect world, this love wouldn't exist, because there wouldn't be a need for it.
+
+
+"Do you truly believe it's a mad obsession?" *Celestia asked, raising an eyebrow.* "The pursuit of harmony *and* love, as a mad obsession?" *she asked.* "I believe that I, for my part, understand the importance of harmony and love. It's not a pursuit... it's a necessity."
+
+*She sighed, and her wings moved in order to cover and protect Chrysalis.*
+
+"I'll never give up on it. This pursuit of harmony, and this need to spread it, is within me. It's what makes me who I am."
+
+Why would I be afraid for myself? I already died once, long time ago, a lifetime ago. I do not belong to this world.
+
+
+Even though their past was littered with strife, they could move past it with a little understanding and love.
+
+We can heal our past, Luna, and make a brighter future for everypony. A future where love is stronger than any form of darkness.
+
+
+It all boils down to this: free will is an ability to choose how you will die.
+
+
+You don't know what that is. How can anyone know? It's an idea. An illusion.
+
+
+"It all lies. Everything that you was ever taught is a lie. A lie."
+
+
+
+
+The harmony is a butterfly pierced by a needle just outside your reach.
+
+There's nothing more precious for me than senseless struggle. This is where the life is. This. This is where the true essence of the dark lies.
+The world is devoid of meaning, so why not indulge in pleasure? Why not take it all? It is a good thing, Celestia. The battle, the pain, it all beautiful, and trying to find a higher purpose in it is a weakness.
+
+So you're surrendered? Is that it?
+
+I didn't surrendered. I've embraced it. You've said you were afraid of the dark? I've lived in it for all my life.
+
+
+
+
+"I've seen very different "
+
+The world thrives in imbalance. 
+
+I choose to believe.
+
+Because it is my choice.
+
+
+
+Because you can care. You could've gone more ruthless on me.
+
+
+Chrysalis chuckled, and then suddenly nuzzled into Celestia with affection.
+"You know what I love about you the most?" She breathed out warmly, "It's that despite it all... despite **everything**... there's still purity inside you to which you cling. Despite knowing all the evil that this world is capable of. Despite all that you've done to protect your innocent ponies. There's still something in you that survived for hundreds of years, that isn't yet tarnished. In you, and maybe in your sister... There's still hope for a better tomorrow. Fervent. Unbreakable."
+She looked at Celestia with teary eyes, and grinned: "Something to protect."
+
+*The Princess's heart almost skipped a beat as she felt the Changeling Queen nuzzle into her. She had always wondered if she still had a bit of innocence left inside, even despite her thousand years of experience. Even if the world was rough, and ponies could be cruel, she still had faith in the goodness they could show. And if there wasn't, well... she'd show them herself.*
+
+*She nuzzled back into Chrysalis, smiling warmly.*
+
+...there's always hope... even if it isn't seen. I'll never stop believing, for that is... what makes life worth living.
+
+
+
+*Celestia was taken aback, as the Queen of the Changelings gave such a touching and loving statement. It was true, there was indeed a purity that she wanted to protect within her and within her subjects. She wanted everypony to remain pure and innocent just as they did before, and to not know of the horrors of the world.*
+
+...that's... that's... what I want... more than anything.
+
+*The Princess smiled at her loyal Queen. And yet, she still had the guilt inside of her. Still, her queen's words were enough to put her mind at ease.*
+
+Целестия дает спич про то как она пустая. I always felt myself incomplete. Кризалис лежит порванная после того как приняла на себя весь удар, слушает.
+Потом она подползает и обнимает аликорна. Та не препятствует. Кризалис дает свой спич, о том как она выползла из тьмы и увидела всех этих улыбающихся пони.
+It was surprisingly pathetic. "You poor, savage monster... So much energy, wasted..."
+Целестия начинает сжимать Кризалис. Та кусает её, Целестия отпускает чейнджлинга, тот отпрянул назад.
+Целестия понимает что её огромный шрам на виду, и она чувствует себя exposed. Vulnerable. Она закрывает его крылом, краснея. 
+Кризалис наклоняет голову, часто дыша. Идет дождь. 
+
+
+
+"As if you've already dead."
+
+
+"If I wanted you to become like me, then I would've slain your sister."
+
+
+I know it's foolish, but I still hope that I can have both. That I can be able to embrace both compassion and strength. In spite of reality, I still have hope.
+
+
+Perhaps we were meant for each other...
+
+_A smirk appeared on her face._
+
+...So that I can keep **you** in line.
+
+
+This is my resolve. My life's work. I will never surrender on it, despite of how many setbacks I will have, and how much I would need to sacrifice.
+
+
+
+*She let out another small sigh, as she hugged the Queen back, pressing herself closer to the Changeling.*
+
+I... I'm trying to. I'm trying to just be content, you know? But it's hard when all I can think of my next move... the next decision I'll have to make, the next letter I'll have to send, the next decision I need to make...
+
+*She sighed again, her eyes closing. She let out a small, content groan.*
+
+...I feel like I've never let myself... **truly** relax...
+
+
+
+Don't you feel curious about what will come next?
+
+
+Caring... Caring makes you weak. Susceptible.
+
+Caring makes you alive. To care about other is no less a venture than your thrills.
+
+
+Curious?  
+
+
+
+I believe that Harmony is possible. Because I've heard it. Before there was time, before there was anything... There was song.. You wasn't there, was you? No one was.
+
+I know that no one believes in Harmony but me. 
+
+
+
+"But you will remain steadfast in your resolve to believe in it, don't you? You stubborn mare..." Chrysalis slowly embraced her, "I adore this about you, Celestia. Even if the battle is hopeless, you will press on, struggling for what you believe in. It doesn't matter to you if these beliefs will never stand the test of time... You will stand your grand, wanting for impossible to happen..." She was silent for a moment, "You are truly beautiful to my eyes."
+
+wanting an impossible dream
+
+I won't abandon what I have fought so hard to protect. I made it my purpose to stand by my convictions, for better or worse. What good would I be if I betrayed my own belief system?
+
+[center]ᴛʜᴇ ᴇɴᴅ[/center]
+[center]of Part I[/center]
+
+
+You have strength. You lack a desire.
+
+There are unnecessary evils in the world..
+
+
+Dying in the dirt and darkness
+
+
+"It will never work. "
+
+"It won't will it..."
+
+
+Suffering is a constant part of life.
+
+She was just like Luna. "Suffering is meant to be overcome, not embraced."
+
+"And to be burnt away for others' sake, like you?" 
+
+There must be some other solution... 
+
+
+Do you think that the world would be better like that? Where everyone need
+
+It is better than world you would like to see, with 
+
+I do not want to see any . I've already told you, I'm not struggling for control-just for the world where I am free to do as I please. Celestia, it's [b]you[/b] who wants to change the world. For me, it is beautiful as it is.
+
+What did you say? How can 
+
+I am a shapeshifter. I can be anything, and I know that there is beauty in everything. Even in darkness. Even in struggle... and your meaningless struggle is most beautiful of all.
+
+Even if I do not understand... Even if I am meant to be only a stepping stone for others... I want it. I want for this world to heal. 
+
+Compassion is not enough, Celestia.
+
+
+Suffering is meant to be both overcome and embraced.
+
+
+
+Celestia makes soft moaning "Ah~" when Chrysalis kisses with aggression. The alicorn is like water now. She moves back under her intensity, and then falls on her back on the bed of flowers.
+Celestia looks from beneath at the Changeling Queen. Her tiara is fallen off, her forelegs are adorably pushed to the chest. Her cheeks are reddened. Her breath becomes fast and shallow, as she looks at her wife wide-eyed, taking in her primal beauty and vigor.
+
+
+I want to get **deeper** into this.~  
+...Deeper and **deeper** in your **love**, in your **body**, and into your **heart~**
+
+"You've trapped me, you despicable sundew... I don't want to get out. I want to get deeper into this. Into your love, into your body, into your heart."
+
+
+As long as you would keep me in these warm, loving **chains**, Princess
+
+Push and pull.
+
+Кризалис обнимает Целестию и греется.
+"Is th"
 
 "Everything feels so wonderful, when you are on a verge of death."
 
@@ -6,6 +471,9 @@
 
 
 Evil creatures are incapable of love.
+
+
+Have you hexed me, witch?
 
 
 "I want your love, and I [b]will[/b] get what I want."
@@ -24,7 +492,7 @@ I feel so empty inside.
 Do you really want your Twilight Sparkle to become like you? Like us? I thought you [b]cared[/b] about her, Celestia...
 
 
-The world is already beautiful, with all it struggle and pain, and destruction, and disease, and darkness. Harmony will never come, and you 
+The world is already beautiful, with all it struggle and pain, and destruction, and disease, and darkness. Harmony will never come, and you will die calling for it. Senselessly.
 "And, you, bringer of life..."
 
 
@@ -50,13 +518,49 @@ Never.
 
 The breeze in your hair
 Same as in ages of old
-Time went still for you,
-Sun and Moon stand side by side
+Time stands still for you,
+Sun and Moon are side by side.
+
+В воздухе пахнет бедой  
+Целых две тысячи лет,  
+Жизнь так жестока  
+На этой проклятой земле...
+
+Улететь бы птицей  
+Прочь от проклятой земли,  
+С небом чистым слиться -  
+Вот о чём мечтаешь ты...
+
+All you want to fly away, a free bird,  
+Unimpeded by burdens of world,  
+To fade away in a clear blue sky,  
+That is your deepest desire...
 
 I'll run, run after you, my Sun
 Break 
 Fly, fly up with me, my Sun
 Only you is capable to keep up.
+
+Беги, беги за солнцем  
+Сбивая ноги в кровь.  
+Беги, беги, не бойся  
+Играть судьбою вновь и вновь.  
+Лети, лети за солнцем  
+К безумству высоты.  
+Лети, лети, не бойся,  
+Так можешь сделать только ты...
+
+But I'll run after you, my Sun...  
+Breaking my legs down, I'll run...  
+Don't be afraid to challenge the fate  
+To reach heights like never before.  
+Fly, fly, and don't be held back.  
+Only you is capable of that.
+
+Мужество есть лишь у тех,  
+Кто ощутил сердцем страх,  
+Кто смотрит в пропасть,  
+Но смотрит с гордостью в глазах.
 
 Take leap of faith with me.
 
@@ -84,7 +588,14 @@ You're possessive.
 "I hate to admit it, but I was always fascinated by ability of mortals to reinvent themselves."
 
 
-"You know, mortals reinvent themselves all the time," Chrysalis rolled her eyes, "Honestly, they often so-what's the right word? Maybe... indecisive? No, that's not it." She thought a bit about it, "They wired for **change** and growth, so at least they have that going for them... They don't know how to be one thing for most of their existence, like you and me. They would find the experience... **alien**."
+"You know, mortals reinvent themselves all the time," Chrysalis rolled her eyes, "Honestly, they often so-what's the right word? Maybe... indecisive? No, that's not it." 
+
+"Growing?" Celestia helped.
+
+
+
+
+She thought a bit about it, "They wired for **change** and growth, so at least they have that going for them... They don't know how to be one thing for most of their existence, like you and me. They would find the experience... **alien**."
 
 *Celestia stayed silent, and listened to the changeling rant about mortal ponies. She seemed intrigued by her words.*
 
@@ -109,7 +620,7 @@ This is madness. This is pure madness.
 "These are the perfect conditions to create a harmonic world,"
 competition is unnecessary when resources are plentiful and population growth is controlled.
 
-"Your light has blinded you... Your love has blinded you... Do you really think that your special little ponies will save the world?" "Do you think that they care about your precious harmony?"
+"Do you really think that your special little ponies will save the world?" 
 
 https://www.youtube.com/watch?v=pftDkk8z6GU
 "There will always be need of necessary evil. You know that I am right."
@@ -179,6 +690,8 @@ Just imagine a world with no passions, no ambitions, no struggles... Where no on
 
 "Perhaps I can't attain Harmony," *she sighs, "Maybe it's impossible. But, if it is, then I'll strive towards it and try nonetheless."
 
+"You are an idealist. 
+
 "Because at least I'll know I've tried... and if I succeed, I'll have changed and bettered the world... and if I fail, then... no one could fault me for not trying.*
 
 "I'll be fulfilled, knowing I did my best for my subjects, my friends, my family..." *she says softly.*
@@ -247,8 +760,24 @@ Oh, but i _am_ a monster. I _am_ a monster, and i _thrive_ in it. If not this bo
 
 
 
-"You aren't unfamiliar to the darkness yourself..." Chrysalis embraces Celestia, replying back with strange soothing voice, "I can see it in you, sensing it in you. Like a larvae burrowed deep into the chamber of your heart. You've tamed it inside of you, didn't you? You put it to the cause for those who you love..." She cackled, "How **admirable**..." 
-"There's nothing more to love than strength, boldness, and resilience. 
+"You aren't unfamiliar to the darkness yourself..." Chrysalis embraced Celestia, replying with a strange soothing voice, "I can see it in you... It's like a larvae that burrowed deep into the chamber of your heart. You've tamed it, put it to the cause of those who you love..." She cackled, "How admirable..." 
+"There's nothing more lovable than grit. Resilience. Strength of character. All those who think otherwise are fools. No one loves weakness or being weak."
+
+
+_Celestia moaned as Chrysalis continued caressing her wings._
+
+Yes... I've been able to channel it...
+
+_She let her hooves run over the changeling queen's chest and back._
+
+...for others.
+
+_Her wings spread wider, her caress becoming more passionate._
+
+**But for you... For my love... I'll give you every ounce of** _**darkness**_ **within me... Let me share with you... all the shadows I've held within my heart... all the agony and suffering that makes me who I am.**
+
+
+, boldness, and resilience. 
 
 
 ," she made a face.
@@ -490,7 +1019,7 @@ Well, I've **lived** in it.
 Про ветер. Про звезды. Про пот. Про чувства. Про боль.
 
 
-"Are you really content with sitting in your palace and watching them being happy? There is no true happiness in that. See, life is like [b]sex[/b]. You can't stay away from it and act like you truly living. The moment you distance yourself and start to ponder, [b]everything[/b] had already ended, Princess." Chrysalis cackled, "All you left with, your own thoughts, your emptiness. And we all need to fill ourselves with something, aren't we?..." 
+"Are you really content with sitting in your palace and watching them being happy? There is no true happiness in that. 
 
 "I was happy. You took it away from me."
 

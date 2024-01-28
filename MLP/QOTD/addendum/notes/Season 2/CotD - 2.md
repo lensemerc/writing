@@ -1,3 +1,494 @@
+— Do you know what turns darkness into light? 
+— Poetry.
+
+
+Целестия находит Каданс в руинах Кристал Паласа
+
+There was a promise, that...
+
+...while living in effulgence...
+
+...and impermanence, dreamed...
+
+...of liberty to ask an echoing question:...
+
+..."what is love to you?"
+
+"Love is power."
+
+The Heir of Discord
+
+Стадии принятия неизбежного
+Anger итп
+
+В прошлом:
+Eight Company
+
+Sister, she is a sycophant
+
+Hate and fear are the best tools for manipulation
+https://www.youtube.com/watch?v=uDLZjg5xfQI
+
+
+We of darkness are those who are abandoned by Design
+Unwarranted. Unneeded. Unheeded. Scorned.
+
+
+
+Evil is simply a shortest route between you and something
+Evil happens when people give up
+Evil is boring
+
+
+"Why am I always at war with myself? Why have I told, as if upon compulsion, what I knew all along I ought to have withheld? Why am I making a friend of this woman beside me, in spite of the whispers against her that I hear in my heart?" - Our Mutual Friend by Charles Dickens
+
+Дочери Аморы умирают
+Молодой Сомбра похож на Санберста
+Moonwarden
+
+
+Big Brother ponies, made for war
+
+
+
+The more thou art engrossed into strive for good against evil, less you are open to question the methods you choose.
+
+
+Король Кошмаров
+Каданс беспомощно смотрит как Кризалис, Луна и Целестия заполняет могилу головами Принцесс Любви
+
+1. ### _[_7:08_]_Tipper_:_ 
+    
+    Some of the most powerful words ever spoken. In any language, regardless of when they were said. Between losers and loners, outcasts and otakus, even when said softly into the night and spoken to the departed. Four words.
+    
+2. ### _[_7:08_]_Tipper_:_ 
+    
+    "You are not alone."
+    
+3. ### _[_7:10_]_Forcalor_:_ 
+    
+    My characters so far only tried to persuade themselves that 'I am not alone', can be a good callback to that down the line
+    
+4. ### _[_7:11_]_Forcalor_:_ 
+    
+    ohhh.
+    
+5. ### _[_7:11_]_Forcalor_:_ 
+    
+    would I dare to expand that to 'We are not alone'?
+    
+6. ### _[_7:11_]_Forcalor_:_ 
+    
+    I absolutely would.
+
+Are you alright, Sister.
+
+I am. I... It's been quite a week.
+
+Fear of change
+
+Целестия говорит про вино
+Как в первом эпизоде House of Usher
+Называет Старсвирла щенком
+
+
+When you find value in life, you are given it meaning.
+
+soft power
+концепт в политике
+
+"Perhaps... It very well might be..." _The princess mumbled._ "All this time.... I have been devoted to my kingdom, the citizens, the ponies, Harmony. Did I ever truly know what **love** was? Or was it all but a distraction...?"
+
+"I can't argue with you there... I have been terribly lonely for so long, so very, **very** lonely, and I would be lying if a part of me didn't desire to be with somepony else... Someone who understood me, and could help me find new meaning. Someone who could give me the affection I've been missing..."
+
+Для Кристал Эмпаир (древней)
+Вдохновиться вступлением КИШ - Добрые люди
+
+"Are you satisfied now, Chrysalis?"
+
+"I am never satisfied..."
+
+
+I want to walk.
+I want to dance.
+I want to breathe. 
+
+
+"Be good to me." She whispered.
+
+*Two shadows, mingling.*
+She woke up exhausted, but feeling good.
+It was a peculiar sensation.
+
+"Ponies are weak, but they are weak because they know so little of the ways of the world beyond theirs. If you want a challenge, you should seek out a worthy opponent to push you to your limits."
+
+A couple of world-building ideas, free to use (I like them for now, but I dunno when I will implement them)
+1. If the world of Equestria isn't a planet, and assuming that the Crystal Empire is located on the snowy edge of the world, it can be also assumed that the Crystal Heart can thaw it with time and allow to venture further north, beyond the edge of the world. I imagine it can be sailed on airships or other sort of flying machines. It can allow to commune with other civilizations similarly located on the edge and build trade relationships
+2. It can be what facilitated the fall of the Crystal Empire one thousand years ago: it was prosperous, ambitious and rich, and they could proverbially fly to close to the stars in some capacity. Like, the place drawn the attention of Sombra from beyond Equestria and it destroyed itself in a civil war, for example
+3. It also can imply that there is more than one Crystal Heart in existence (it also works if you assume that the Crystal Empire is located at the equivalent of North/South Pole, then there can be two)
+
+Когда Кризалис возвращается вечером
+Целестия: Я ненавижу тебя
+You've been drinking.
+
+How astute.
+
+You've ruined everything.
+
+She was lying yelding to the elements.
+A slow agony.
+
+
+One of your kind ancient enemies 
+and you're going to be okay with that?
+
+estrus cycles
+
+
+Кристал Эмпаир это порт, который со временем оттает, и который можно будет использовать для пространственного перемещения в Beyond
+
+Вендиго живут в ледяном кольце вокруг эквестрии
+
+
+You are a paper pony before me, Starswirl. I can end you in an instant.
+
+Not in the mood.
+
+Целестия хлещет вино
+Рэйн Шайн, Старсвирл и Зекора в замке
+
+Кибитз пробуждает её
+
+Толпа из-за статуи Твайлайт
+
+Рэйн Шайн требует "дать ей Солнце", но потом Селестия припечатывает её
+
+
+Паппет титр
+
+Первая глава Целестии: 
+все тело болит
+флешбеки секса с Кризалис
+разбирается с последствиями: статуя твайлайт, тырыпыры
+
+
+"Make no mistake." Her eyes flashed with witchfire. "I am not a mortal trickster pretending to be something I am not. I am who I am: a shapeshifter. It is who I am born as, and who I will die being." 
+
+
+Старсвирл приходит чтобы говорить с Целестией. Толпа на площади
+Потом к ней присоединяются Рэйн Шайн и Зекора
+
+
+
+There is the power in numbers...
+
+In number of two, for instance.
+
+Three is the most powerful number in the world.
+
+
+
+*Chrysalis chuckles at that, sounding almost pleased at the mention of dark nature of her fellow changelings.*
+
+*We changelings thrive off aggression and dominance, just like any other predator."
+"That said, we are not so different from the other ponies in Equestria - we merely do not hide our true nature beneath a facade of kindness and civility."
+"In that sense, you could say that our actions are purer than those of the most benevolent and kind-hearted ponies..."
+
+Amore:
+Let me tell you a story.
+Once, a long time ago, there was this unicorn Queen that decided to sacrifice herself. Про то как она крикнула во тьму: будьте прокляты вы все! I would give my soul, my self to the deepest of darkness, so all of you would be cursed forevermore.
+Тьма просочилась в неё, забралась во все её мельчайшие щели
+And then, devoid of all, she became a stone.
+Ah... What a tale.
+
+I didn't knew that my fate was decided like that.
+
+Celestia: It is because. You've failed. You've risen too high, Amore. You let ambitions cloud your judgement.
+
+Amore: Since when did you became such a perfect judge of character?
+
+
+No, I didn't become some insectile dimwitted being just to pester you far into the future. 
+
+I was a sacrifice. A sheep that was tossed to the wolf.
+
+Вокруг неё огни и растут цветы
+Do take care of your loved ones. Do not squander your second chances.
+
+Сжигается зеленым пламенем и все вокруг перевоплощается. Do not think about me. I was dead for a longest time, while you... you got to live. So live.
+
+
+Chrysalis: Dance with me. Make love to me. My heart sings... don't you hear it?
+С Кризалис как будто свалился огромный груз
+
+Целестия придавливает Кризалис.
+
+"I love being defeated by you. Your victory is my triumph, Celestia."
+
+*Chrysalis could not resist. She was putty in Celestia's hands. The changeling was utterly helpless, submitting in complete surrender towards the alicorn. There was no resistance, no struggle, just a deep desire to be possessed. Her cries and moans were satisfying, like a victory chant. The alicorn enjoyed this victory over the changeling, relishing in her submission and her loss of control. It gave Celestia a rush of adrenaline and dominance like never before. The princess had reached a new level of power over her nemesis.*
+
+Two steps forward, one step back
+Флэшфорвард к Каданс на кладбище
+
+I never liked warmth, to be honest.
+
+, потом обратно к тому как они в Кристал Эмпаир говорят про Амору
+
+
+I felt him around me... I felt him in me...
+She's just like him.
+You are cavorting with her...
+Don't touch me.
+
+Целестия пытается поддержать Каданс, но та упорствует. 
+
+См. песни Толкина
+
+Love makes you vulnerable.
+
+lovebirds
+
+Northern Equestria
+Southern Equestria
+Central Equestria
+
+One of the sculptures has a pony operate a bow and arrow with hooves, rather than like we saw in **Equestria Games.**
+
+Пилларсы отряд героев в войне против Сомбры 
+
+The dark mirror 
+without reflection
+
+There is no hope in the darkness.
+Only crystal clear cold sobriety.
+No disillusionment. Nothing to mislead. 
+You need to understand...
+
+The moonlight is with us!
+
+Эпилог 1
+Кризалис после того как пробита Мечом Гармонии, лежит в койке. Целестия ухаживает за нею
+
+
+_There are forces in this world that are far greater than you or me or even an ancient god like Flemeth. And even dragons fear the darkness._
+
+
+1. ###   
+    18:17_]_FanOfMostEverything_:_ 
+    
+    Ah yes, the original Somnambula.
+    
+2. ### _[_18:17_]_FanOfMostEverything_:_ 
+    
+    The one where it makes sense that she's named after sleepwalking.
+
+Предпоследняя глава с пова Шайнинг Армора
+Апплджек, Баг Мас, 
+Меч Гармонии показывает путь
+
+Because he is a threat.
+
+Селестия, Кризалис (проткнутая мечом), Апплджек, Луна, Пинки Пай и Шайнинг собираются для последней сцены
+Селестия дает возможность Шайнингу решать судьбу Кризалис самому
+Та пытается провоцировать его убить её
+What would Twilight do?
+Эпплджек возмущена
+Шайнинг: Ай пити ю.
+Селестия упрашивает Шайнинга оставить статую Твайлайт. Она не готова к разговору
+
+
+Селестия застывает в присутствии Сансет и ведет себя очень авквард
+
+Каданс ищет свою дочь
+сайлент хилл стайл
+
+
+Целестия: я была очень другим пони тогда
+1. ### 0:38_]_Flovv Krovv_:_ 
+    
+    Котд 2 начинается с рассказа про Амору от Целестии, и про печать под Кристал Эмпаир Каданс догадывается что у Целестии были романтические отношения с Аморой
+    
+2. ### _[_0:39_]_Flovv Krovv_:_ 
+    
+    Когда Кризалис показывает Целестии про Амору, она держит осколок, и частично превращается в неё
+    
+3. ### _[_0:39_]_Flovv Krovv_:_ 
+    
+    Но Амора это Флурри харт
+    
+4. ### _[_19:01_]_Flovv Krovv_:_ 
+    
+    maybe I want to engulf the world, chew it, and remake in my own visage
+
+
+We are all creatures of darkness now.
+
+отряд чейндлингов в службе Сансет ближе к финалу
+Pharynx-843 лидер (из The Little Sparkles in the Dark)
+один из Тораксов возвращается обратно в служение Королеве
++
+
+
+
+You say there is a Light?... 
+There is no Light.
+There's only the Darkness... and us.
+
+Your stars have changed...
+
+I haven't noticed.
+
+Луна командует льдом для сражения с Сомброй. Элемент воды
+
+
+Amore is in Flurry Heart
+
+"Seek the Heart."
+
+
+Let the stars guide us.
+
+"Light have mercy on us all..."
+
+Sister, you let your emotions guide your actions in time of desperation. I understand.
+
+Сцена где Спайк показывает что он вообще-то дракон
+
+
+Аморе выше чем Каданс
+
+The one who married to cry of mare in labor
+
+Night Light зажиточный лорд
+
+
+Luna... Can I really sacrifice my happiness for the sake of... what's normal... or what's expected?
+
+
+A child that is forever carried, would never learn to walk.
+
+
+The Queen of Varmints! What joy! What joy!
+
+varmint /vär′mĭnt/
+
+### noun
+
+1. One that is considered undesirable, obnoxious, or troublesome.
+2. A [pestering](https://duckduckgo.com/?q=pestering+definition&ia=definition) animal such as one that kills or harasses a farmer's livestock.
+3. A person who is [obnoxious](https://duckduckgo.com/?q=obnoxious+definition&ia=definition) or makes trouble.
+4. An irritating or obnoxious person.
+5. Any usually predatory wild animal considered undesirable; e.g., coyote.
+
+I am not so obsessed with my own beauty as you might think.
+
+СОМБРА МАЛО ГОВОРИТ И МНОГО ДЕЛАЕТ
+
+
+У Рэйн Шайн конфликт с Целестией. 
+Целестия считает что Рэйн Шайн сбежала от своих обязанностей -- сражаться с вендиго
+Целестия украла частичку первородного огня чтобы лоси создали киринов как помощников в защите леса и уничтожении вендиго
+Кирины это духи огня который помещены в смертную оболочку
+
+Рэйн Шайн гораздо более лояльна к Луне чем к Целестии
+
+Старсвирл бросает Целестии новую корону
+
+Старсвирл не знаком с Зекорой
+
+
+I think I was tired for a very long time now.
+
+
+Can you love without knowing heartbreak first?
+
+_The memory of her most precious night with Chrysalis was suddenly fresh in her mind, and she could do nothing but smile at the very thought of it._
+...She... _My heart... I felt so alive last night._
+
+Сомбра захватывает Каданс?
+
+Концовка:
+It's no longer 
+
+Твайлайт Велвет приходит и конфронтит Кризалис перевоплощенную в Целестию
+
+"She admired you, Celestia! Have you no heart? No soul!?"
+
+Your Darkness
+
+1. ### 21:47_]_Snowy Haze_:_ 
+    
+    How much magic power does Velvet have again?
+    
+2. ### _[_21:47_]_FanOfMostEverything_:_ 
+    
+    Considering her kids?
+    
+3. ### _[_21:47_]_Snowy Haze_:_ 
+    
+    Touché
+    
+4. ### _[_21:47_]_FanOfMostEverything_:_ 
+    
+    "More than she lets on" seems like a reasonable guess.
+
+
+Okay, you know how we all say 'By Celestia', right? What if instead we'll just say 'By Cel', or 'Hail Cel!'
+
+You're a riot.
+
+Oh yeah! I'm a rebel.
+
+
+Шайнинг жалеет Кризалис
+I pity you, because you do not know the simple joys of living.
+Take away your malice, and will be left of you? You're just an empty shell.
+
+FIGHT ME
+
+No, I won't.
+Целестия понимает что он знает про связь
+
+
+из какого-то коммента на флмфикшене
+https://www.fimfiction.net/story/518190/the-princess-and-the-kaiser#comment/11756114
+Power of the throne is, largely, derived through 5 basic avenues:
+
+-Divine Will: _"By the grace and will of God, I have been so commanded and granted dominion of these lands by our divine savior and shall execute his will!"_ Basically what the tin says. God has decreed in some manner that his will is for said person to rule.
+
+-Appointment/Mandate: Nominally by a council or military, yet in some cases by the people. This is a formal agreement for one party to be appointed ruler. Famous examples would be the Emperors of Late Imperial Rome. Rule by appointment should also be noted to be inherently unstable and short on life.
+
+-Blood: Rule of the Blood, Legacy of the Blood. However you call it, your blood relation nets you, your siblings, and your descendants a chance at your throne. This is by far the oldest and longest lasting claim to Sovereignty. The most famous, and longest lasting blood legacy example, is the English Royal Family.
+
+-Popular Consent: Much like appointment, but not as formal. This is essentially the will of the people made manifest by the people loudly voicing their assent of a singular person to lead them.
+
+-The Sword: Literally taking power by force of arms. It's simple, brutal, and effective.
+
+Blueblood is campaigning for the throne. Celestia considers it ridiculous.
+
+
+Когда уходит
+Я забираю Твайлайт
+No, please. I am responsible for her. I need more time, to meet her on my terms.
+
+Alright. But don't 
+
+You could've make a fine King someday, Prince.
+
+If being a ruler means sacrificing a part of your soul, I'd rather not.
+
+
+Год проходит но Целестия не находит смелости превратить Твайлайт обратно. Это делает Кризалис
+
+
+https://www.fimfiction.net/story/8316/1/the-song-of-syhlex/the-song-of-syhlex
+для поэмы про Тьму
+
+
+Кристал Спаир превращается в Сайлент Хилл
+
+тьма и тени
+
 1. ### 18:15_]_SIREN_:_ 
     
     im just imagining shes playing go fish in the cave with her guards + little girl while celestia is having the WORST week of her life
@@ -14,6 +505,27 @@ Starlight: Чего ты боишься больше всего на свете?
 Остаться одной.
 
 
+Сансет: Хей, ай КЭН калл ю май дад, райт? (Дискорду)
+
+
+Сцена в которой Сомбра погружает Каданс в иллюзию, в которой она думает что она Аморе
+И Каданс периодически пробивается через иллюзии
+
+
+
+So, Princess, how is sex with her like?
+
+https://www.fimfiction.net/story/219841/dinner-with-the-king
+Для вдохновения
+
+1. ### 8:02_]_Flovv Krovv_:_ 
+    
+    Я вдруг испытал сладкую грусть. И понял, что человеку не надо жалеть утраченного. Просто потому, что оно никогда на самом деле не принадлежало ему, а значит, не было и утраты... Переживать по поводу успехов и неудач тоже не следует, поскольку мы никогда не знаем, в чем на самом деле наше благо… Не надо никому мстить – мы всегда мстим тени, которую отбрасывает наш собственный ум, а попадаем в других… И даже если эти другие действительно сделали нам плохое, они все равно не имеют никакого отношения к той умственной пантомиме, которая посылает нас в бой… Мне знакомы были все эти мысли, и я, пожалуй, назвал бы их банальностями... Как выяснилось, ни одной из этих банальностей я никогда по-настоящему не понимал. Crepuscule, The Matron of Owls
+    
+2. ### _[_8:09_]_Flovv Krovv_:_ 
+    
+    "Когда я притворяюсь, у меня все всегда получается натурально. Поэтому я притворяюсь всегда – так выходит гораздо правдоподобнее, чем если я вдруг начну вести себя искренне. Ведь что значит вести себя искренне? Это значит непосредственно выражать в поведении свою сущность. А если моя сущность в том, чтобы притворяться, значит, единственный путь к подлинной искренности для меня лежит через притворство." When I pretend, everything comes to me naturally. That's why I pretend always-and it seems much more believable than when I act sincere. Think about it, what is means to be sincere, anyway? It means to show in the behaviour your true self. If my true self is to pretend, then for me, only path to sincerity is through pretending.
+
 Способность пожертвовать собой и своими интересами - вот что отличает благородство от "благих намерений", которыми вымощена дорога в ад
 
 Зекора и Старсвирл оба посещают Целестию пока Кризалис отсутствует и говорят о неминуемом пиздеце. Пока гепотеза что мир болен, и что Целестия должна остановиться
@@ -23,6 +535,9 @@ Starlight: Чего ты боишься больше всего на свете?
 Зекора прибывает в обход стражи
 
 Зекоре несколько сотен лет
+
+Кирины прибывают чтобы помочь сражаться против Сомбры
+Зекора призывает их?
 
 
 Shear Page
@@ -229,7 +744,7 @@ Be safe. целует
 Sombra:
 Потому что все мы – мягкие и слабые. И даже в зрелости мы маленькие плачущие дети, нуждающиеся в любви, внимании или хотя бы ненависти. Мы достаточно глупы, чтобы иногда вызывать друг у друга серьезные эмоции – и в этом помутнении ума заключено наше счастье, потому что на самом деле никто не нужен никому.
 
-We are all soft and weak. Even when we are mature, we are still little crying children, aching for love, attention, or at least hate. We are stupid enough to induce real emotions in others, and in this delusion lies our happiness, because in truth, no one needs anyone else.
+We are all soft and weak. Even when we mature, we are still little crying children, aching for love, attention, or at least hate. We are stupid enough to induce real emotions in others, and in this delusion lies our happiness, because in truth, no one needs anyone else.
 
 When the scales fall from you eyes and you see deep into the Truth you will be burdened with a great pain. It feels as a great sorrow without beginning or end. It neither comes nor goes, it is simply there. I can not explain it but it appears to be part of our fundamental condition. Why should our hearts be so burdened? People seek enlightenment as some kind of bliss but the truth is rarely so comforting. -- из рандомного коммента на тытубе
 

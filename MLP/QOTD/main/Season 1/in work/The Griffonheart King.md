@@ -1,3 +1,55 @@
+Celestia Harmony
+
+"This is fine. I'll make this problem go away."
+
+"Do not worry about me."
+
+They all were in love with her, of course. She did not required it, nor expected—it simply was a natural state of being to them, like for a tree to grow, for river to flow, and for a pony have a need to draw breath.
+
+
+
+Your Eminence.
+
+Please. There is no need to bow, King Grover.
+
+
+Duty requires sacrifices.
+
+
+A band of brothers? Isn't that peculiar.
+
+also very Celestia to focus on the food, love her
+
+Вписать этот момент с Беовульфом
+https://www.youtube.com/watch?v=Ku-z_hvgG10
+
+
+Сдергивает с себя пейтрал, хочет чтобы он нанес удар
+
+Under the willow we meet
+
+Написать с flowery dialogue, посмотреть образцы
+
+I am truly, utterly sorry.
+You might as well argue with the wind.
+
+
+My sincerest apologies, Pony Princess. We bear no means to offend to 
+
+It's quite fine. I rarely have an opportunity in indulging myself in such quisine. 
+I hope you wouldn't tell my ponies about it. 
+
+
+
+Here, at the edge of your known lands, your crusade will falter.
+
+
+
+
+
+
+
+
 The Griffonheart King
 
 https://www.youtube.com/watch?v=cAZb67igb4o

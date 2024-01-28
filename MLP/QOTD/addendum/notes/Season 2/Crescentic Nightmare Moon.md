@@ -1,10 +1,332 @@
+Princess Luna is asleep
+
+Selena
+Luna young
+Luna adult
+Nightmare Moon
+Luna after NMM
+Luna Crescentia
+Luna EQG
+Selena real world (Может быть другое имя)
+
+8 лунных фаз
+
+philosophies of C S Lewis
+
+
+Those ponies, always wanting something.
+You decide to live for yourself, and suddenly you are the villain.
+
+
+What's life if not a waste of time, dear Sister?
+
+
+Leo: I've always favored little Luna, you know it.
+Cousins.
+
+Cosmic Council
+Om -- air, avian? elephant 
+Leo -- narwhal, water 
+Vorak -- centaur, earth 
+Celestia
+
+celestial abyss
+
+восемь типов любви? или семь. посм.
+см. тот анализ Over the Garden Wall
+
+The red Moon...
+The whole world...
+Washed in crimson...
+
+We dream not about objects, but ideas
+
+Dreams matter... Without dreams... we don't have strength.
+
+Life simply flows
+
+We've never met face to face... did we?
+
+Mirror doesnt exist without a reflection
+
+"Do you even know yourself?"
+
+'Sis'
+
+Immortal and pure like a newborn.
+Луна в парке. Каданс и Целестия смотрят
+
+
+Сердце в холодильнике
+Человек-Луна (Селена?) медленно нарезает его и жарит каждый день
+horse surgeon
+лошадиное сердце
+a slab of meat and muscles
+
+
+Ночные пони пытаются предпринять что-то во время появления Найтмар Мун. Селестия предпринимает меры за кадром чтобы этого избежать
+
+
+
+1. ### 0:50_]_3 Unitoids In A Trenchcoat_:_ 
+    
+    [https://www.youtube.com/watch?v=3VSUuTABb3U](https://www.youtube.com/watch?v=3VSUuTABb3U "https://www.youtube.com/watch?v=3VSUuTABb3U") I maintain that this would be Luna's instrument.
+    
+    [YouTube](https://www.youtube.com/)
+    
+    [Peabody Essex Museum](https://www.youtube.com/channel/UC8Ex6I2ggC-Lcoxjml5FEwg)
+    
+    [Westerkerk Carillon - Johann Sebastian Bach - Toccata in D minor](https://www.youtube.com/watch?v=3VSUuTABb3U)
+    
+    [](https://discord.com/channels/543937232441049109/782038221696663563)
+    
+    ![Изображение](https://images-ext-2.discordapp.net/external/MkCtnUFhe8Ffbl8c0x6Qv08Ue2YGHICnm1RdxqexmO4/https/i.ytimg.com/vi/3VSUuTABb3U/maxresdefault.jpg?format=webp)
+    
+    [](https://www.youtube.com/watch?v=3VSUuTABb3U)
+    
+2. ### _[_0:51_]_3 Unitoids In A Trenchcoat_:_ 
+    
+    Bonus: It can be played with only hooves.
+    
+3. ### _[_0:52_]_Forcalor_:_ 
+    
+    I love that! Wanted a scene with her at piano, after all ![😁](https://discord.com/assets/967207cb2562c712da07.svg)
+    
+4. ### _[_0:52_]_Forcalor_:_ 
+    
+    nice!
+    
+6. ### _[_0:52_]_3 Unitoids In A Trenchcoat_:_ 
+    
+    Carillons are the world's largest instruments :D
+
+brevity
+
+The Lady of the Thousand Masks
+The Lady of the Thousand Mayflies
+The Lady of the Thousand Bites
+
+### 22:39_]_Forcalor_:_ 
+
+I always meant for night ponies in my writing to be a result of Luna to try to make her own tribe in distant past, it _does_ seem to align with the character. Idea that they are a varied medley of other three might be an interesting one
+
+
+There is an artistry of being a villain. You need to quell that little voice, sounding at the back of your head... You need to reject what makes you human.
+
+
+Уговаривает Луну после возвращения с Луны 
+
+
+Cadance heaved a sigh and spoke in a stentorian voice: "A while back, Celestia told me that the Elements might be the last hope for Equestria. She made me promise to her, that if unexpected happen and things go sour, I'll try to preserve you. I am not about to squander this hope without knowing what is going on. I will risk no one else."
+
+
+princeling
+godling
+
+![[Pasted image 20231213205124.png]]
+
+I am in a great pain, Sister. I can't pick favorites.
+Ponies become boring when they grow old. They are just so... impermanent! 
+
+Don't you know that dreams are better than reality?
+Discard your illusions of dignity... join me in dances of flesh.
+
+
+I will be there when you die.
+
+
+
+
+Ебаный Артес из ВК 3
+
+Do not look left...
+
+Do not look left or I will devour you.
+
+Найтмар Мун смотрит на пони которые убивают друг друга
+This bores me.
+
+Now this is art.
+
+The beauty of the macabre.
+
+
+"Keeper of secrets..." The phrase echoed in her mind - it brought her back to the days of her youth, when her sister often used to refer to her as "my faithful confidant". As if lost in thought, she continued to listen intently for more words to come.
+"My faithful confidant... My keeper of secrets."
+
+That sounds like a very cool character! There are actually several mythological and fictional characters who are associated with dreams:
+
+1. Morpheus from Greek mythology, the son of Hypnos and the god of dreams, who is often depicted as a winged figure holding a lamp.
+2. Dream from the Sandman comic books, who is the leader of the Endless, a group of personifications of universal forces such as Death and Destiny.
+3. The Sandman from DC Comics, who has the power to manipulate the dreams of others and has a special affinity for children.
+4. Alice from the Alice's Adventures in Wonderland series, who falls asleep and enters a dream world full of strange and fantastical creatures.
+5. The Dream Lord from Doctor Who, who is a manifestation of peoples' nightmares and fears.
+
+These are just a few examples, but hopefully they can give you some inspiration for your character!
+
+Sure, here are some examples of dream weavers or dream-related characters from mythology and fiction:
+
+1. Sandman - A classic character from folklore who brings people peaceful dreams by sprinkling magical dust into their eyes.
+2. Hypnos - The Greek god of sleep and dreams, often depicted with a pillow and a feather.
+3. Dream of the Endless - A character from the "Sandman" comic series by Neil Gaiman, who is the personification of dreams and rules over a realm called the Dreaming.
+4. Puck - A mischievous fairy from Celtic mythology who is sometimes called the Dream King, and is said to cause nightmares by blowing mist into people's faces.
+5. Yume - A character from Japanese mythology who is associated with sleep and dreams, and is often depicted with a pillow or a blanket.
+6. Somnus - The Roman god of sleep and dreams, often depicted with a poplar tree and a horn.
+
+I hope these suggestions help inspire your character!
+
+Somnus
+
+
+
+
+I need a new name, Dream Weaver!
+
+Призывает гигантского слейпнира
+
+
+
+It wasn't me.
+
+Act as an adult.
+
+
+
+Вдохновиться динамикой между Целестией и Луной
+из Assassin's Creed Syndicate
+
+https://www.fimfiction.net/blog/622688/rtac-10-best-princess
+
+1. ### 10:00_]_Flovv Krovv_:_ 
+    
+    Мысли Луны: Use your strengths to counter your weaknesses
+
+Over The Garden Wall
+Луна как Верт (проблема с любовью и привязанностью)
+Целестия как Георг (но выглядит как молодая Луна)
+
+https://www.fimfiction.net/blog/692148/rtac-12-n-archy
+
+Queen Celestia независимая королева
+Она позволяет пони разбираться самостоятельно со своими проблемами
+
+It also does a good job of showing Luna off in a more… I want to say motherly aspect but that isn't quite right. Luna often gets stereotyped as the Princess of War. The dour one, with fell countenance and fury, while Celestia gets to serve the aspect of the counselor and kind parent. It's good to see Luna getting into that, particularly because 'cares for foals' really does mesh well with her proper canon role.
+
+Nightmare Moon invokes lightning without the use of a horn. It actually never lights up through this entire two-parter, she _never_ casts magic with her horn, just the eyes.
+
+“But… you told me it was all an old pony tale.” Notably, Celestia did not say anything of the sort on screen, and there wasn’t anything we heard strong enough for Twilight to conclude that, either. There had to be a conversation between these two letters.
+
+Princess Celestia writes _really_ fast. Also, notably, it sounds like she wrote _two_ letters: The first one that just brushes Twilight off and the second one that finally sends her off to Ponyville. The first one starts with “My dearest most faithful…” while the second one starts with “My dear Twilight.” There was probably at least one more letter between the two, because some context seems to be missing.
+
+Cadance picks the very last moment to insist on using “Cadance” instead of “Mi Amore Cadenza.” You only do this if Celestia kept resisting and insisting on using the full name for months.
+
+https://www.youtube.com/watch?v=cQsQqxCDaro
+
+
+Луна создает своих пони. Она создает Сомбру.
+(вдохновиться Адвентур Тайм Сезон 9/10 эпизод 18)
+
+https://latin.stackexchange.com/questions/7243/tantibus-genuine-latin-word-or-made-up
+incubus
+sleep mare
+world of dreams
+
+
+Построить преобразование вокруг девяти форм любви
+
+https://www.youtube.com/watch?v=W7KIm_6qkMQ
+
+The ponies can see dreams again (after return from the banishment)
+
+The spark (когда сталкивается с НММ)
+
+Princess.
+
+Queen.
+
+I renounced that title, Luna. 
+
+
+I am the eldest. I am responsible for you and your actions, don't I?
+
+
+The tree of Harmony will remake them, 
+
+
+
+You are unworthy of their love and reverence, Celestia.
+
+
+
+I have just found this post, but I think I have a sort of answer. As opposed to how the quote puts it there is no actual "physics" of love but it is more pragmatic than "just" being a personal philosophy. Through psychology we cannot define love or say how it should be done, but what we can do is see what happens when someone doesn't get love. This is where it gets more practical than personal philosophy. We now know that in order to grow into an emotionally healthy adult first the child has to be loved by their parents and feel safe in every way. The child has to learn to love itself, forgive itself for mistakes, have a calm soothing voice in their heads and healthy coping mechanisms for traumatic events in life. When a child doesn't get love and consequentially doesn't learn all those things I listed that could lead to developing insecure attachment to other people. In practical terms it means the child will not trust people and if they somehow befriend someone they will require way more insurance that their friend is still their friend than people with secure attachment. Same thing with romantic partners, someone with insecure attachment will need evidence frequently that their partner loves them, because they never learned how to trust and there might be an ever-present background fear that they can lose them at any time. This behaviour from the outside can look like the person is being jealous, clingy or needy. The child with insecure attachment might not even know what they need is love, they might feel empty, lonely, abandoned but without help it is unlikely that they will understand their own condition and the sad truth is that the behavioral symptoms of not-having-been-loved doesn't invite love. This is what is meant by the quote.
+
+Celestia was like a mother to me.
+
+
+
+I know that all light belongs to you.
+
+Can't you just see that I am better without you?
+
+
+Когда Целестия контролирует Луну сама
+"You're just as bad as they are"
+"I will run away... I won't ever be in your way, just please, let me be."
+
+"This is for your own good. You will be my little sister... and maybe, you will learn to love me again."
+"Sister..."
+"This is for good of all."
+
+Возвращается, Каданс ждет уже
+
+"We will be together, Luna. You will be happy..."
+
+"No... "
+
+
+I can't be like her.
+
+Am I the same thing as she is?
+
+
+[center]══════════════════════════ 𒊹 ═══════════════════════════[/center]
+
 Ей снилось гротескное животное. С его раскрытой пасти спадало нечто светлое, соскальзывающее вниз с неприлично длинного языка, переброшенного через острые клыки. Оказываясь на кончике, оно окрашивалось в красное и падало каплей крови вниз, ударяясь о черную водную гладь и посылая круги во все стороны.
 Существо с лицом матери укрыло её одеялом, как в детстве. Склоняясь, касаясь губами лба, потом обнимая и бережно прислоняя поверх обнаженной груди с светлым сосцом, существо тихо шептало:
 - После сражений наступает ночь, в которой окровавленная луна превращается в алое солнце. Это знамение новой вехи, требование радикальных перемен, ведь это значит что люди осквернили рай: мир вокруг себя.
 
-When the fighting dies down, the quiet darkness comes, and the bloodied moon shines like the bright red sun. It heralds the demand for drastic change since it means that we have defiled our paradise—the very heavenly land that surrounds us.
+When the fighting dies down, the quiet darkness comes out, and the bloodied moon shines like the bright red sun. It heralds the demand for drastic change since it means that we have defiled our paradise—the very heavenly land that surrounds us.
+
+disassociation
+nothing is real
+living in a world of fog
+
+
+"No, Luna! We are the Sun and Moon, and together, we are [i]one[/i] Light!"
+
+
+
+
+"When the great darkness dimmed the sky, The earth trembled at mine footsteps. I have roamed the lands, I have drunk of foreign waters Outside of your bounds, to quench the fire of my thirst. I have tasted of many a mead, And been made strong by its power. I have seen the sun rise from the seas, And set down to rest in your dark embrace. The evening star shines in your lap, And I must leave, trusting in your love and in your grace, In your power and in your embrace. You bind the mountains, and hold fast the land, You carry the blood of the vanquished, and their defeat in your hand, You are the path to victory, and the way to its end, And you know not, what you hold within..."
+
+
+What's wrong with me?
+
+Why am I like this?
+
+Why do I want to hurt myself so much?
+
+Why I can't care?
+
+woman on the moon
+
+number four is the one that keeps apocalypse from happening (ацтекская культура)
+
+дэвид линч. диалог из твин пикса
 
 Now close your eyes and watch.
+
+путешествие данте. лес. три зверя
 
 Череп! 
 Мудрость глядит из зияющих впадин глазных, Тихо гниющая лобная кость говорит без тумана: Нет наслаждения правдой в волненьях пустых, Нет красоты и ума вдохновений в пожаре обмана. Ряд обнажённых зубов, искривлённых тоской, Грустно смеётся над тем, что мы славим и нагло позорим... Избранных эта насмешка зовёт на покой Без упоения призрачным счастьем, иль видимым горем... Правда - в недвижном одном замираньи, в гниеньи одном! Тайна - нирвана; получит блаженство в ней ум безнадёжно-бессильный... Жизнь - есть святое затишье, покрытое сном... Жизнь - это мирно и тихо гниющий от света могильный Череп.
@@ -29,6 +351,37 @@ They tried to muzzle her, Starswirl. The Cosmic Council. What did you do? I got 
 
 Луне нужны помощники для работы над снами
 Сомбра порождение Луны?
+
+1. ### _[_23:59_]_pseudobob ◶_:_ 
+    
+    Yeah. And maybe a lot of the horrific history of Nightmare Moon's reign was actually done under Celestia's name, or under whatever government came before. And it just gets remembered that way because it was a confusing time and has since become legend.
+    
+2. ### _[_23:59_]_Farcalor (arching the dark arc)_:_ 
+    
+    oh, actually I can roll with this one, fits the narrative
+    
+
+4 ноября 2023 г.
+
+4. ### _[_0:00_]_pseudobob ◶_:_ 
+    
+    One of the most striking things about history is that... sometimes, something incredibly important and noteworthy happens, and nobody knows why
+    
+5. ### _[_0:01_]_pseudobob ◶_:_ 
+    
+    The people who would have known are long dead, perhaps died before anyone could have thought to ask them, and may have had their own reasons for keeping quiet or muddying the waters.
+    
+6. ### _[_0:01_]_Farcalor (arching the dark arc)_:_ 
+    
+    Nightmare Moon can be a great pariah in the eyes of history. They could attribute her _any_ shit that was happening one thousand years ago
+    
+7. ### _[_0:02_]_Farcalor (arching the dark arc)_:_ 
+    
+    and a big character trait of Celestia is that she isn't perfect herself
+    
+8. ### _[_0:02_]_Farcalor (arching the dark arc)_:_ 
+    
+    _writes it down_
 
 
 """
@@ -60,7 +413,24 @@ The whole business of Nightmare Moon using her dream powers against her opponent
 
 The Balance did not need them anyway. Soon, something new, something better will come! The ponies.. I am sure that you will love them. 
 
-You left me gestating in the Moon for hundreds of years!! What did you expect? That you will just kiss me on a cheek and it all will go away? All who I knew are dead and gone!
+You left me gestating in the Moon for hundreds of years!! What did you expect? That you will just kiss me on a cheek and it all will go away? Everything that was before, everything is gone... Everything crumbled into the dust... How could you do this to me, Sister?
+
+
+Целестия и Каданс смотрят на Луну, которая гуляет по Кантерлоту
+She seems to be adjusting.
+
+Yes.
+
+I spoke to her, she seems to be in her right mind! I mean... 
+
+Yes.
+
+Yes. Yes... She is everything that I expected her to be. She is... My little sister....
+
+Целестия плачет.
+
+
+All who I knew are dead and gone!
 
 No... You still... You still have me...
 
@@ -92,6 +462,9 @@ Pretty ironic... A nightmare moon, hanging over Equestria...
 Целестия убивает остальных членов Космик Консула когда те приходят за Луной и пытаются наложить на ту геас повиновения
 Затем она убеждает Найтмар Мун подыграть ей
 
+
+Кризалис ассоциируется с кроликами
+В застолье вметсо собак кролики
 
 черная ночь
 вечное небо
@@ -147,6 +520,9 @@ Time was diluted.
 "I hate bad news"
 "What is this? A poison? Am I not benevolent enough for you? I am your Celestia the Benevolent! Is this some kind of joke? Can you imagine, Sister? They tried to poison me."
 
+
+
+
 ### 21:26_]_Forcalor_:_ 
 
 Kinda envisioned this scene right now, where she submerges into deepest waters. Alicorns seemingly fine in _space_, so why not
@@ -184,6 +560,8 @@ Nightmare Moon
 Luna
 Её человеческая копия
 
+Кролики (кризалис трикстер)  https://tvtropes.org/pmwiki/pmwiki.php/Main/TheTrickster
+ 
 
 "Are you siding with those ingrates!?"
 "No, I..."

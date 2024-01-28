@@ -8,11 +8,40 @@
 Rejoice, since there is no Queen. Rejoice, since there is no realm. Rejoice that nothing divine lives, And for millennia that yet untold, A coldest light will now unfold. Bask in the gleam of rising dawn. Rejoice for the emptiness and vacuum, Rejoice for the bleakness and the death, Rejoice that we won't find a succor, Rejoice that we won't need an aid
 
 
+У Кристал Харта свои альтернативы в других королевстах мира Эквестрии
+Которые выполняют ту же функцию
+
+acumen -
+acumen /ăk′yə-mən, ə-kyoo͞′-/
+
+### noun
+
+1. Quickness, accuracy, and keenness of judgment or insight.
+2. Quickness of perception; the faculty of nice discrimination; mental acuteness or penetration; keenness of insight.
+3. In _botany_, a tapering point. **Synonyms** Penetration, discernment, acuteness, sharpness, perspicacity, insight.
+(науч.)
+
+
+персонаж никомо коста или как-то так из той фэнетезийной книжки с варваром 
+
+"Because I'm a Princess... And because I'm a Princess, I have to bear it, and I will. I'll be your shield, I'll be your protection, your armor and your bastion.
+
+demurred - возразить
+
 ensorcelled, ensorcerly
 https://www.etymonline.com/word/ensorcell
 
 -- околдовать
 
+
+If I can't endure, can Equestria?
+
+A living being seeks above all to discharge its strength.
+Life itself is a will to power. Nothing else matters. - Ницше
+
+
+
+Поставить либо сюда, либо в катарсис
 
 разложение, трупное окоченение, когда организмы уже начинают
 ганс гигер 

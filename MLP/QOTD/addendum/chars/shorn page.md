@@ -1,5 +1,6 @@
 Крея/Кейв Джонсон/Сенатор Армстронг
 
+ШАКАЛ
 
 https://www.youtube.com/watch?v=dY4uaHiyO8U
 
@@ -12,6 +13,8 @@ I want to win the ultimate game, so I would be free of it!
 If there is a god, than he needs to be killed
 
 The fact that Armstrong is, at the end of the day, a dirty cheater and a hypocrite, is to me at least perfect. Of course the guy shouting about “We should all be free!” is only talking about himself. “We” to these people always, always actually means “I.”
+
+Пони с фальшивыми "руками" поверх их передних ног
 
 https://www.youtube.com/watch?v=-avJIDU_I1Y
 

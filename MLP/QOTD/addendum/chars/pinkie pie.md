@@ -31,3 +31,11 @@ https://www.youtube.com/watch?v=cyBhqatliyE&t=1s
 
 
 ![[Pasted image 20231004185000.png]]
+
+1. ### _[_23:20_]_Forcalor_:_ 
+    
+    Power of the dark side is a slippery slope, you will eventually start hurting others because it runs on a very nietzschean premise. The moment desire to have fun with those around will become self-servient (and it _will_, as it makes Pinkie more powerful), she will chase it disregarding feelings of others. It is a corrupting and addictive thing
+    
+2. ### _[_23:22_]_Forcalor_:_ 
+    
+    _makes notes for the dark side Pinkie_

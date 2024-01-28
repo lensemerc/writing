@@ -589,7 +589,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/15+ Far above.md",
+                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/15 Remaining.md",
                 "mode": "source",
                 "source": false
               }
@@ -625,7 +625,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/15+ Far above.md",
+                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/15 Remaining.md",
                 "mode": "source",
                 "source": false
               }
@@ -769,7 +769,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "MLP/QOTD/main/Season 1/in work/The Conqueror King.md",
+                "file": "MLP/QOTD/main/Season 1/in work/The Griffonheart King.md",
                 "mode": "source",
                 "source": false
               }
@@ -781,7 +781,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/15+ Far above.md",
+                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/15 Remaining.md",
                 "mode": "source",
                 "source": false
               }
@@ -793,7 +793,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/15+ Far above.md",
+                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/15 Remaining.md",
                 "mode": "source",
                 "source": false
               }
@@ -805,14 +805,26 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/Untitled.md",
+                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/18 pace.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "4b531c2407e995c0",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/18 pace.md",
                 "mode": "source",
                 "source": false
               }
             }
           }
         ],
-        "currentTab": 66
+        "currentTab": 67
       }
     ],
     "direction": "vertical"
@@ -878,7 +890,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/Untitled.md",
+                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/18 pace.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -895,7 +907,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/Untitled.md",
+                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/18 pace.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -918,7 +930,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/Untitled.md"
+                "file": "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/18 pace.md"
               }
             }
           },
@@ -928,7 +940,9 @@
             "state": {
               "type": "all-properties",
               "state": {
-                "sortOrder": "frequency"
+                "sortOrder": "frequency",
+                "showSearch": false,
+                "searchQuery": ""
               }
             }
           }
@@ -936,7 +950,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 316.5
+    "width": 349.5
   },
   "left-ribbon": {
     "hiddenItems": {
@@ -948,53 +962,53 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "a0ecfeb30a2ab61f",
+  "active": "4b531c2407e995c0",
   "lastOpenFiles": [
-    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/15+ Far above.md",
-    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/Untitled.md",
-    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/14 The looking-glass.md",
-    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/16+ Her jaws.md",
-    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/17+ Catharsis.md",
-    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/18+ epilogue.md",
-    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/19+ epilogue 2.md",
-    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/Celestia's Lament notes.md",
-    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/02 Creatures of the Dark. Prologue — Princess Luna.md",
-    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/13 The love, shining through.md",
+    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/Beauty.md",
+    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/18 pace.md",
+    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/19+ Her jaws.md",
+    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/20+ Catharsis.md",
+    "MLP/QOTD/main/Season 2/Crescentic Nightmare Moon/The Prologue.md",
+    "MLP/QOTD/main/Season 2/Crescentic Nightmare Moon/PLAY.md",
+    "MLP/QOTD/addendum/notes/Season 4/s 4.md",
     "MLP/QOTD/addendum/notes/ideas-plots.md",
     "MLP/QOTD/addendum/notes/general.md",
-    "MLP/QOTD/addendum/surplus.md",
-    "MLP/QOTD/addendum/history; timeline.md",
+    "MLP/QOTD/addendum/notes/Season 2/CotD - 2.md",
+    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/15 Remaining.md",
+    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/16 Far above.md",
+    "MLP/QOTD/main/Season 1/in work/The Hand of Discord.md",
+    "MLP/QOTD/addendum/notes/Season 2/Crescentic Nightmare Moon.md",
+    "MLP/QOTD/main/Season 2/Crescentic Nightmare Moon/The Prologue Nightmare.md",
     "MLP/QOTD/addendum/races/ponies/equestria/government.md",
-    "MLP/QOTD/addendum/races/ponies/equestria/canterlot nobles.md",
     "MLP/QOTD/addendum/races/ponies/equestria/genetic manipulation of the wildlife.md",
-    "MLP/QOTD/addendum/notes/Season 3/chars for las pegasus.md",
-    "MLP/QOTD/addendum/notes/Season 3/for tr.md",
-    "MLP/QOTD/addendum/notes/Season 3/las pegasus.md",
-    "MLP/QOTD/addendum/notes/Season 3/looking-glass add. notes time travel.md",
-    "MLP/QOTD/addendum/notes/Season 3/their true enemy.md",
-    "MLP/QOTD/addendum/notes/Season 3/will of entropy.md",
-    "MLP/QOTD/addendum/notes/Season 2/she reigns.md",
-    "MLP/QOTD/addendum/theater of war/equestria/Canterlow (Canterlot Undercity).md",
-    "MLP/QOTD/addendum/theater of war/equestria/Canterlot (Capital).md",
+    "MLP/QOTD/addendum/races/ponies/equestria/about army and guards.md",
+    "MLP/QOTD/addendum/races/ponies/equestria/canterlot nobles.md",
+    "MLP/QOTD/addendum/notes/Season 2/chars for crystal empire.md",
+    "MLP/QOTD/addendum/chars/blueblood.md",
+    "MLP/QOTD/main/Season 2/Crescentic Nightmare Moon/My little Sister.md",
+    "MLP/QOTD/main/Season 2/in work/The Ship.md",
+    "MLP/QOTD/main/Season 2/in work/Threads of Lies.md",
+    "MLP/QOTD/main/Season 3/Triumequinate/colorful revolution.md",
+    "MLP/QOTD/main/Season 1/Creatures of the Dark - Part 1/17 The reach of.md",
+    "MLP/QOTD/tvtropes",
+    "Pasted image 20231213205124.png",
+    "MLP/QOTD/addendum/races/ponies/flutter ponies",
+    "Pasted image 20230915001752.png",
+    "MLP/QOTD/addendum/theater of war/EQG dimension",
+    "Pasted image 20231115141641.png",
+    "Pasted image 20231007195222.png",
     "Pasted image 20231019200602.png",
     "MLP/QOTD/addendum/races/scorpan kingdom",
-    "Pasted image 20231007195222.png",
     "Pasted image 20231004185000.png",
     "Pasted image 20231003074347.png",
     "Pasted image 20230925155427.png",
     "Pasted image 20230918015857.png",
     "Pasted image 20230918015831.png",
-    "Pasted image 20230918015809.png",
-    "Pasted image 20230918015732.png",
     "MLP/QOTD/addendum/races/hippogriffs",
     "MLP/QOTD/addendum/races/hippos",
-    "Pasted image 20230917223802.png",
     "MLP/QOTD/text success",
     "MLP/legacy/COTD uwriter",
     "MLP/legacy",
-    "MLP/QOTD/addendum/theater of war/griffon kingdom",
-    "MLP/QOTD/main/Season 3/My Wife Is An Omnicidal Overlord",
-    "MLP/QOTD/main/Season 2/Creatures of the Dark - Part 2",
-    "MLP/QOTD/main/Season 2/Crescentic Nightmare Moon"
+    "MLP/QOTD/addendum/theater of war/griffon kingdom"
   ]
 }
