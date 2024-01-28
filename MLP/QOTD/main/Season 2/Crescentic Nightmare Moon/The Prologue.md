@@ -18,6 +18,7 @@ https://www.fimfiction.net/story/118436/selling-out
 
 
 
+
 1. I love when ponies are described with cat like mannerisms. Make them feel more real somehow. And also adorable. Like how yakovlev-vad does a lot of his drawings. (изменено)
     
 
