@@ -6,10 +6,26 @@
 Про то как Целестия была очень отупленная после сотен лет своего существования, и её начали понемногу оживлять
 A surrogate daughter.
 
+По четыре пальца на каждой руке
+He has the right arm of a lion, the left claw of an eagle,
+
+
+the right leg of a lizard, and the left leg of a goat. In addition, he has a bat's right wing, a [Pegasus](https://mlp.fandom.com/wiki/Pegasi "Pegasi")' left wing, a horse's mane, and a [dragon](https://mlp.fandom.com/wiki/Dragon "Dragon")-like snake's tail with a white tail tuft. The shape of his body resembles that of a snake. Discord bears a resemblance to a [Chinese dragon](http://en.wikipedia.org/wiki/Chinese_dragon "wikipedia:Chinese dragon"), a creature often depicted with a serpentine body, facial hair, feline claws, and antlers.
 
 Really.
 
 Celestia: You think that I am not empathetic?
+
+And he said to her something that wasn't meant to be heard--or read--by anyone else. Sorry.
+
+
+You need to touch object to make it move.
+
+
+
+There must be a price to the power.
+
+As always.
 
 
 You will do well to learn that 
@@ -20,6 +36,10 @@ If your mind makes it real, then what difference does it have?
 
 
 While the truth can be an objective thing, what people believe in can win out in the end. You would do well to remember that.
+
+
+Hands on her forelegs
+Руки на передних копытах Сансет
 
 
 1. ### _[_5:11_]_Flovv Krovv_:_ 

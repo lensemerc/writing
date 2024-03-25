@@ -1,27 +1,877 @@
 [quote]So I kiss her harder. I push her lips apart with mine. I take her breath. We’re sweetness, and sweetness turning into ruthlessness.[/quote]
 
-𒄈 [b][size=1.1em]W[/size][/b]"hy does it always feels as if the Dark is stronger?
+𒄈 "[b][size=1.1em]O[/size][/b]ur souls are entwined," Chrysalis breathlessly whispered. "Can you feel it?"
+
+Celestia bent under the changelings' assault. Chrysalis pinned her to the wall. She let it happen.
+
+"Tread lightly, beast. You speak of a kinship with the star," Celestia warned in an equally quiet voice.
+
+"The [i]star[/i]?" Chrysalis sneered defiantly. "All the stars are far in the sky, and they have conspired to bring us together. In another place, in another time, we would've never met like this."
+
+"The stars might seem far, but they still watch over all," Celestia breathed out and crossed her forehooves on Chrysalis' nape.
+
+Why does it always feels as if the Dark is stronger? 
+
+"Must be so lonely—to be the most powerful being in existence," Chrysalis tempted.
+
+"In this world—" The touch of her enemy made Celestia sharply inhale and fill her lungs with an acrid smell, mixed with the sweet odor of ozone. In a futile attempt to restrain herself, she pushed her knees together. 
+
+Why does nothing ever goes according to plan?
+
+"You shouldn't be afraid of your emotions. Not [b]you[/b]," Chrysalis snarled.
+
+"Foolish [i]insect[/i]." Celestia's lip curled in a grimace. 
+
+They were going down the lust-filled river of darkness that was stirring inside of them both. Chrysalis' forehooves dug into the alicorn's coat, virtuously directing the rafting.
+
+"You're a [i]monster[/i]..." Celestia groaned and rasped into Chrysalis' ear. "You [i]deserve[/i] to die. Your crimes are [i]unforgivable[/i]."
+
+The Queen bared her teeth, satisfied. She loved it. They both did.
+
+...And there was a constant fight against jealousy, avarice, pride, and addiction. A fight against emotions that run amok.
+
+There was a [i]pull[/i].
+
+And there are never any steps over the lines, and no imaginary boundaries. All there was is an arrival at what was perceived before as a limit, and then an engagement in a game of compromises with your conscience. 
+
+There was a revelation that things exist that you can get away with, the things, that can grant you more pleasure than pain... Isn't it natural to try to diminish your pain, and if you care about someone, to diminish pain of another too?
+
+And there comes a [i]push[/i].
+
+"I want to learn all your curves," murmured Chrysalis. "Maybe what you want is to be worshiped?"
+
+"Trespasser-r..." Celestia hissed, her voice is almost ecstatic. "You think you can take and break anything you want!?"
+
+"I want only your heart. Give it to me. I'll rip it out." Chrysalis' eyes gleamed with virile green. "I want all your resolve, your [i]every[/i] emotion. [b]Pour[/b] it [b]all[/b] out."
+
+Behind her thinly veiled prideful arrogance was boundless confidence, based on something beyond any juvenile sense of entitlement. Chrysalis [i]knew[/i] she was good because she [i]was[/i] good. It was her craft, her lifeblood. Celestia [i]knew[/i] that the nature of the Queen's powers demanded to submit to her willingly.
+
+They both were aware of how it was supposed to end... So why not enjoy it a while longer? Celestia gave into the meticulous caress of the changeling's aura at the base of her wings. She wanted more, and she expanded them in full, taking over the room with bright light. She arched her back with a smile full of pained bliss. Chrysalis was hitting all the right spots.
+
+Celestia wanted for her body to be used like a delicate instrument that it was. It wasn't [i]truly[/i] built for fighting, after all.
+
+"You trifle with the Sun itself," she warned weakly, nonetheless.
+
+"My sopping [b]wet[/b] Sun," Chrysalis replied in the most haunting and beautiful of voices.
+
+Her skin was like suede, smooth and tempting. Celestia moved her forehooves lower, and the excited Queen eagerly leaned into the soft embrace.
+
+"I admire your bold spirit," confessed Celestia. "To defy me on every turn, but still be willing to play with me... You are a creature that is full of courage and hubris."
+
+As if in drunken stupor, they forced their bodies together.
+
+"My [b]playmate[/b]," Chrysalis vigorously snarled. "I [b]love[/b] it. Don't you afraid that I will play too rough and break you?"
+
+"You mean to say, [i]you're[/i] afraid of that?" Celestia nickered.
+
+"No..." the ancient shapeshifter bit back a growing smile. "No, I [i]want[/i] to [b]tear you apart.[/b]" 
+
+A rush of pleasant shivers ran down Celestia's coat. 
+
+"I want to mix your flesh with mine, so let there be no [i]me[/i], nor [i]you[/i]..." Chrysalis sang with vicious, raw lust. "I want to peel your bones bare clean... I want to break those bones and suck on your marrow... I want to. I [b][i]want[/b][/i] to..."
+
+These voracious words enticed her. The Queen slipped past all defenses and inhibitors; her touch managed to pull from the alicorn an immodestly loud moan.
+
+"[i]This is madness,[/i]" flashed a fading thought.
+
+Chrysalis buried her muzzle into Celestia's neck, greedily breathing in her scent. Her warm whisper filled her world, "I want to show you what [b]true[/b] admiration [b]is[/b]. There's [b]nothing[/b] more intimate than to become [b]one[/b] with the other."
+
+"You got it all wrong, you foolish changeling..." Slick with sweat, panting, Celestia covered her enemy with her wings. "That is [i]such[/i] a one-sided point of view..."
+
+"And yet you are aware that there's truth in it," replied Chrysalis with flirtatious malice. 
+
+"Why everything must be about conflict and domination with you?"
+
+"Because it is all about [b]power[/b]." Chrysalis began with ominous voice.
+
+Целестия дует раскаленным паром, и тогда Кризалис начинает покусывать её шею
+Celestia laughed, exposing her neck more.
+nips
+lovebites
+
+The teetering on the edge of the sensual abyss.
+
+"[i]How strange it is: in the end, I do not want to be hurt. This dark, carnal heat feels so good... I want for this to last forever.[/i]"
+
+She knew that she could die at any moment now. 
+
+The possibility of her demise wasn't something that was often on her mind, and it was so unusual to face it... She savored the sensation, known to her but almost forgotten. 
+
+When Chrysalis' teeth pierced her skin, she shuddered with a quiet gasp. 
+
+Кризалис собирает кровь её языком, частично размазывая, затем оставляет алый поцелуй на её щеке и шепчет: "What do you feel when you watch how your immortal blood ebbs away?"
+
+Кризалис прекрасно знает что у неё было на уме
+
+
+It was a frightening realization that she may senselessly perish, and she has no control over it.
+
+"With your infantile lusts and greed you seek to destroy a lifetime of my hard labor. "
+
+Let out flames devour one another. 
+There are no better way to settle our ancient rivalry.
+I know that your heart calls out to do this...
+
+"You aren't a rival. You are a parasite who hurt my little Sister." 
+
+"Suit yourself."
+
+
+
+
+
+
+
+
+... And the fear that I shall rain down untold sorrow and destruction upon Equestria should I ever become corrupted.
+
+
+This ravishing, ugly beast... This infinitely diverse mate... This vicious tyrant.
+
+
+
+Хватает за "корону" на голове королевы и чуть не отрывает
+
+
+The cold echo of the outworld
+Celestia was familiar with how to deal with this.
+
+Сражение с первой -- 
+Падают вниз, Кризалис гасит инерцию падения с помощью своей магии, потом пинает Целестию в живот
+Черная и белая молния
+Кризалис пытается сокращать дистанцию, Целестия отшвыривает её опять, Кризалис гораздо слабее
+Ослепляет её, наполняется постоянным свечением. Пробивает копьем, разрывает надвое. оказывается трупом. насекомые лезут.
+
+"You are desperate."
+
+"Shove it where the Sun doesn't shine, Princess," Chrysalis snapped, and then happily giggled. "Oh, now [b]that's[/b]—"
+
+
+
+Тысячи мигающих зеленых глаз в стеклах здания
+
+
+"You speak and I hear the ripples on water that try to describe what water is."
+
+"All is fine and well in the Kingdom of the Sun,-" began Celestia, not breaking her gait.
+
+"I hear the snow that deludes itself as falling leaves," hissed the shadow, trying to interrupt the cadence of her speech.
+
+"-as long as everyone who lives there, both big and small, knows,-"
+
+"An ash, dreaming of wind."
+
+"-that no matter how dark the night is, the day will always break!"
+
+"All eternal truths are lies!"
+
+"And I will be the one to don the Daybreaker! Lux æterna!"
+
+
+[hr]
+
+Дети дерутся на деревянных мечах
+
+"You are not playing to win anymore."
+
+"Hm."
+
+
+Cupbearer! 
+
+Fill.
+
+
+"Spit it out, Cousin."
+
+
+"Tell it all, and tell it how it is. "
+
+
+Her forehoof went along her royal scepter, fashioned from her own bone and flesh ages ago. A lithe, beautiful thing it was, wreathed in a liquid flame and 
+
+"When we were giving out gifts to your kind,  the power of earth to give more connection"
+"You should've sprouted roots."
+
+
+
+""
+
+
+"Dissention invite hate, and how long can hate hold everything together?"
+
+"Bah. I can feel you," Vorak growled. "If I could take back the time, I'd never sired any of the little bastards."
+
+"That is a fool's talk," Celestia replied evenly. "You love them."
+
+"Aye, that might be true. However, all of them are backstabbing, sniveling unruly cretins, and before you ask, yes—even my golden boy Scorpan is not without a sin."
+
+"Truly, your opinion of your kin is always so low," Celestia spoke
+
+"You would've known too the joys of having a huge family instead of surrounding yourself with ponies.
+
+Celestia's ear flickered. "I am not a matron material, I'm afraid."
+
+Your oven is too hot to bake children, no matter how many times you might've tried."
+
+"Dearest Cousin, you are forgetting yourself. I am a Princess, a mare, and a lady. There are not enough ladies around your court, is there?"
+
+"Ha!" Vorak brayed. "Right now you are as much a woman as a pig with a horn is a unicorn. You're one of [i]us[/i], Cousin, and I will speak with you like an equal, whether you like it or not."
+
+"Is that why you bring that stick each time we meet?" 
+
+"It is my show of respect."
+
+"You didn't even flinched when you said it." 
+"Be serious, now. "
+"You are terrified of this, don't you? In your heart of hearts you often dreamed about how you might bring down mighty Celestia, to engrave your name in the legends for [i][color=#FAC18A]eternity[/color][/i] to come, and to find out if this celestial mare piss and shits herself when she dies just like any other."
+
+He laughed, and Celestia 
+
+"We might've been fine enemies, but that is not in our destinies. I'd drink to that.  "
+
+Celestia watched how the ancient's warlock-king jugular worked as he gorged himself on the wine. 
+
+Celestia regarded the ancient warlock-king. "[i]Prepared speeches for assemblies and for lobbies are always different.[/i]" She wanted to get back to familiar Equestria already. 
+
+"Next thing you'd tell me that millenium ago your firstborn just [i]happened[/i] to slip past your fingers and to invade Equestria. I don't like to be used in someone's machinations."
+
+"It pleases me to see that you aren't so stiff as you appear to be. It's almost -- what is the word? "
+
+"Oak-King, you are the last of all living creatures who should try to provoke me."
+
+"When did you became so stiff?"
+"Soon is the time to fetch that little sister of yours. "
+"We throw such great feasts at Summer Sun Celebration and your kind never comes. You'd think the Mare of the Dreams would change the stale things a little. At least it would be fine to see dreams again."
+"I don't even remember how she looked like --at least not before she became a Nightmare and tried to overthrow you."
+
+"I remember her clearly. I see her every night when I raise the Moon in her name." 
+"Our mutual benefactors willed it so that I won't ever forget her, no matter how much time will pass"
+"I had so many lifetimes of preparations to meet her, and I do not feel prepared at all..."
+
+
+"Don't your starfallen 'niece' helps you with those preparations, or you keep her at a leg's length too?" Vorak slapped his armrest, like an idea overcame him only now. "That's what we need to do! We should get her, get one of my kids, and work a marriage between our kingdoms. Unity is the goal that we all must strive for, is it not?"
+
+Celestia didn't even considered such possibility. To use an alicorn for a political marriage without true love, really?... How [i]mundane[/i].
+"I doubt the Antiquity would will it so, but I assume there would be soon other options in store." Celestia replied. "Discuss such proposition with my successor when she comes around... But we are getting too far ahead with those talks, don't we?"
+
+
+https://www.youtube.com/watch?v=D9avfAsfzZ4
+Переписать эту сцену на разговор с Вораком
+вдохновиться этим
+
+When I delivered gi
+
+
+"These meetings have became stale."
+
+"Hm?"
+
+
+
+
+
+Cupbearer!
+
+Fill.
+
+
+
+
+
+The dark and gnarly Staff of Sacanas, held by the one of Vorak's hands, was like a simple charred stick in comparison.
+
+Celestia felt bored. 
+
+The Centaur King regarded her with a calm glare. 
+
+
+
+"You keep reminding me of this."
+
+""
+
+The King of the realm of Earth was towering above even Celestia -- a 
+They both knew that the physical prowess 
+
+
+
+"It is time, soon." Celestia said. 
+
+When we 
+
+"You have dangerous thoughts, Cousin."
+
+"I know."
+
+
+"Like with Staff of Sacanas?" 
+
+"You are the one with the world. You are the one with eternity."
+
+
+
+
+
+Plant your hooves into the soil. The world is with you. 
+
+
+alicorn of fire
+
+
+
+"I am not really here," 
+
+"My excuse for wasting your time, dear Cousin, but I must make haste to the sun-blessed lands. All my thoughts are with ponies and what is to come."
+
+"Are you prepared?"
+
+"I am not. I had a lifetime of preparations, but"
+
+
+
+"Someone wise once told me that acquiring something compels people to cease to want to look at it," shared Celestia a piece of her mind.
+
+She lounged on the terrace. On the other side of the small coffee table sat her opponent, who was covered by fumes from a giant, opulent hookah. 
+
+Celestia lazily went on with her speech. "They are attracted by the glitter and brightness, and so they lock those things into their hoard, become complacent with them, and spare a glance only to wipe out the dust. What once was so pursued and cherished becomes another part of their mundane world." Celestia paused, considering where she is going with this.
+"Mun-da-ni-ty," she rolled the syllables on her tongue. The power of words was terrifying, and sufficiently impressed by the weightiness' of it, Celestia heaved a breath. "And, of course, I must ask: can it be that Harmony is mundane now? Am I mundane, too? Sometimes I am thinking that Harmony will always remain only at a hoof's reach, if you pardon my equinism."
+
+"Like toys," interjected her opponent.
+
+Celestia lifted her brow in polite confusion.
+
+"Those things you spoke about," the woman uttered with a cough. Her health was failing. "They are like toys that people will inevitably grown bored with. Do go on, please. I didn't mean to interrupt."
+
+"We both know what they will say later about the era of my rule: 'harmony was maintained in Equestria for generations'. For almost a thousand years... Can you imagine? How many generations is that?..." Celestia made another pause to do a quick math. "Oh, I don't even want to think about it," she added capriciously.
+"When I am looking at the past, I am worried about the future, in a way. More precisely, about what ponies will believe in. I've made sure they will remember my origins as that of one who found her way into princessdom by her own ingenuity and resourcefulness, but would that be enough? I want them to always maintain the idea that it is possible for anyone to become an alicorn Princess..." Celestia laughed and sagged deeper into the pillows. Her eyes treacherously gleamed, but she blinked it away. "Ah... What is Celestia, if not a mere idea?..."
+
+"Are you speaking about a loss of identity for their sake?" the woman prompted, letting out more aromatic fumes in the process.
+
+Celestia giggled. "That sounds too sad! No, it's different." She hemmed, getting self-judgmental. "I [i]hope.[/i]
+"I never belonged to their world in the first place," she drawled, taking the scepter that was by her side. "Exempli gratia, take a gander at [i]this[/i] old thing. I must keep it locked away at all times. When they see me with it, what will be on their minds? Those few who remember the legends would be terrified, and their dread would spread like wildfire, and rightfully so."
+
+"Do you hate it?" The woman glanced at the scepter, curious about its magic.
+
+"Hm-m-m..." Celestia's ear flickered as she contemplated the question. "Now that's a strange thought... How can I hate it? It is merely another symbol of my rule."
+
+The woman's weathered hand, covered with bulging veins, placed a small piece on a bamboo board. It was an ancient game—to Celestia's estimation, older than both of their lifespans combined.
+
+Her opponent played black, of course. Celestia played white. She wasn't in the mood to go against the type.
+
+"I think I figured out what's going on with you." The woman scratched a patch of unwanted facial hair that she had given up on getting rid of. "You are caught by your mindtrap again. You are speaking about everything like it should have more agency."
+
+"Well, tell me then, do good, hopeful fairy tales matter?" Tears quickly swelled in Celestia's eyes. She lifted the scepter and pointed at her companion almost accusatorily. "Do legends such as [i]this[/i] have any right to exist? Is there a way for [i]me[/i] to become real? Is it even worth it at this point?"
+
+The woman's laughter was hoarse and strained. "Not to belittle your plight and all, but I [i]wish[/i] I had the same problems as you... Look, don't let your trepidations triumph over reason. It all will end rather soon, and when it does, everyone will be by your side. Me included."
+
+"Everything will end." Celestia bobbed her head, and her flowing mane streamed over her muzzle. She glanced at the sky dreamily. "Everything is supposed to end, for it is the law. Law. [i]Law[/i]." She rocked the sound in her throat and giggled. "What a funny little word of this funny little world."
+
+"You will remain, in a way," the woman reminded.
+
+"As a symbol, you mean."
+
+"Yes. A symbol that will be gazing from an [i][color=#FAC18A]eternity[/color][/i]."
+
+"Oh, yes. It is better this way." Celestia weakly smiled. "I am a symbol even now, after all, an [i]archetype[/i] you'd call it, right? Who else but me? And so to the end of existence I will wag an allegorical feather-finger at all of them." Her smile grew. "'Be good or I'll come back again and smite ye.' Hardly a stretch of imagination, since it's not that different from my current role."
+
+The woman returned a courteous smile and made another draw from the hose.
+
+"But still, I can't stop thinking..." Celestia was unable to stop musing aloud. "Is it truly so wrong to want more?"
+
+"You are too bitter, old friend." The woman outstretched her hand. Celestia met it halfway, and the woman gave her forehoof a little squeeze. "'Is it wrong to want to reach for the stars? Is it wrong to want the impossible to happen?' Those are the questions you want to be asking."
+
+"Yes..." Celestia glanced back with gratitude. "That's right. I, Celestia... want the impossible."
+
+
+
+
+[center]═════════════════════════════ 𒀭𒀭𒀭 ═════════════════════════════[/center]
+
+𒄈 [b][size=1.1em]W[/size][/b]hen
+
+
+
+
+
+
+Отшвыривает Кризалис без слов к балкону
+
+Взрыв
+
+
+
+
+Когда тень
+На латыни?
+
+Am I not worth to be called Ummu-Hubur, the Mother of Monsters?
+
+You want to compare yourself to [i]Grogar[/i]?
+You foolish changeling!
+
+Твой язык ужасен.
+
+
+
+Use your weapon. 
+
+The uprising of mighty Ummu-Hubur and her bastards. The Kerberos--the original one--, even that gardener Sacanas if I am to believe. But not Chrysalis, never Chrysalis, the Queen. You'd part your legs before me, but now show me true battle.
+
+"[i]Why not Father of Monsters too, then? Nevermind. It is never about the raw power, anyway.[/i]" "Legends exaggerate, you foolish changeling," she replied out loud, taking a step. "But I suppose you've earned the right."
+
+Не разговоры
+
+Уничтожает после короткой схватки Кризалис 2, потом атакована Кризалис 3 со спины. Она вцепляется зубами в посох и пытается достать её лезвиями на копытах. Целестия концентрируется на поиске источника её силы пока она сражаетсятелепортируется на кладбище, затопляет все огнем. 
+Кризалис в зеленом огне
+Плюет осколком антимагии в посох, Целестия втыкает Дэйбрейкер в землю и вызывает вархаммер.
+
+"Antimagic." "How could you get your hooves on something so vile?"
+
+"The girl gotta have her secrets."
+
+
+
+
+Целестия выдает реплику на латыни, держа Дэйбрейкер
+Кризалис смеется и отвечает "Твой язык ужасен"
+
+It was both tantalizing and torturous process, 
+
+There is the reason, why creatures like you prefer to be hidden in the dark of the night. Light of the day reveals not only your ugliness, but [i]mundanity[/i]. There is [i]nothing[/i] special in wanting power! 
+
+Кризалис ржет.
+
+Without others to give you power, you are nothing!
+
+Do you have anything new to say?
+
+
+A child can look at you, and not be so scared. Just look at yourself, right not. Two changelings turned, looking at Chrysalis together with Celestia. You all are monstrous only while imagination of others actively work against you. But the moment you peel of all this self-importance, this arrogance? There is nothing but a _child_, wailing against the world because it doesn't settle right with him. A _bug_ to be crushed. You are powerful only while others give you power, and in that, all of you is contained and expressed. Nothing but a parasite, indeed. Through and through.
+
+
+Кризалис превращает свои крылья в орлиные чтобы иметь большую маневренность
+Clawed hands on her hooves
+
+
+
+
+Сражение с второй -- 
+Когда на крыше, Кризалис окружена энергией outworld
+creature of shadows
+the battle scepter The Daybreaker
+в Тьме, испепеляет. hornguard. solar wind со взмаха крыльями. Огонь Целестии сильнее. 
+Have you ever been in the dark forest where nothing makes sense?
+
+Сражение с третьей --
+дубль нападает со спины, руки-крюки. Убивает её тоже, разметает на кости, та сгорает зеленым, падая. Копье в черепушке горит вместе с нею. Телепортируется от неё на кладбище. 
+
+Сражение с четвертой -- 
+hobbing forward and then beginning to run
+
+nature magic с корнями в которые пытается поймать Целестию
+пробивает Дэйбрейкер антимагическим осколком. 
+Целестия втыкает пробитый 
+чарджят друг друга
+пробивает её светящимися копьями, взрывает вархаммер перед тем как тот размозжит голову. пробивает её острием
+
+ 
+
+Сражение с пятой -- 
+игнорирует её, находит реальную превращенную Кризалис, приседает на неё. обрушивается змеями, превращается в саранчу. находит реальную снова, работая тяжелым огромным мечом. та вытаскивает Твайлайт и защищается ею, обрубает её голову.
+раздавливает осколком темного кристалла
+
+No intermediaries!!
+
+Five minutes.
+The steel, cracked and barely holding, was tossed aside.
+
+
+
+
+
+She's desperate.
+"You are so lethal."
+чинит Твайлайт, собирая её осколки
+
+"Shut up."
+
+"Will the girl be alright?"
+
+
+"There's something nostalgic to the experience. Have you ever been a statue before?"
+
+Сражение с последней --
+превращается в волка, пытается сожрать. летит птицей. первращается в рыбу и плывет в затопленной части города. Целестия превращает все в лед, частично. перемещение в башню. телепортируется. ранит когтями в бочину. оба впечатываются в башню.
+
+
+Кризалис плачет от усердия
+
+charity, integrity, optimism
+
+
+
+Крыло ломается, перья повсюду, когда Целестия падает со сломанным пейтралом и теряет Семя
+Она превращается в огненную версию в бешенстве, крыло частично лечится
+
+Кризалис лечит её крыло полностью в Котд-2
+
+_Chrysalis quickly unfastens her breastplate and throws it across the room._
+
+
+"The sun... The hottest thing there is..." _Celestia whispers._ "Yes... I'm the hottest thing there is... How much do you wish to burn?"
+"Burn us both, burn us with hot, mad passion! Let us both burn in the most passionate flame of desire that we have ever felt!" _The Princess screams out in ecstasy, her body quivering all over as she's brought to the brink._
+"Hold tight, dear." Chrysalis whispers, and with a firm movement of hips, slips inside--past all possible defenses and inhibitors. She is rough from the start, pushing the noble alicorn into the throne, mounting her from behind.  
+The Throne Room is echoing with feverish sounds of slaps, the sounds of their grunts and tiny screams. The flame surges.
+Each thrust fans that flame, making it hotter and brighter. Chrysalis rasps into the alicorn's ear. She is violent, dominant, and takes everything that Celestia has to offer.  
+She is incomparable to anyone who Celestia might've knew in the past... Their flames are almost equal.  
+"I want to take you as far as you can..." The Queen pulls her into a sensual kiss from behind, and her friction become even more forceful, abrupt, and sudden. "And then further... that that... my Pony Queen."
+
+
+_heat of the sun, the passion of fire
+
+Here you are. Here is the real you.
+Why did you made it so hard to make you appear?
+
+
+
+Then sweat, heat, mirage, all, rushes fused into a finality which abrogates all logic and justification and obliterates it like fire would: I will not!
+
+
+aura enveloped her whole body. Not just the horn, everything in the Queen acted as the conduit of her magic.
+
+
+Целестия телепортируется на burial grounds когда понимает что Кризалис продолжает использовать трупы
+Кризалис
+
+Are you intent to win, or simply to desecrate?
+
+
+
+Флэшбеки к предыдущим схваткам
+All brawn and no wit.
+
+
+the primal heat. the primal need.
+
+the thrill of the chase, that edge of danger, that uncertainty.
+
+She felt like a drug.
+She feels as if she is being transformed from an enlightened celestial mare into a fiery beast of lust.
+dark, carnal magic
+I feel like a fire, ready to burst at the slightest spark. 
+energized
+radiant sunbeam
+
+
+плазменный посох, с одного конца пускает шары, с другого поражает плазмой
+мечи
+копья
+
+demanded with a braying laughter 
+на латыни начинает говорить
+
+with a lurch - с креном, в бою
+
+perspiration - потоотделение
+my touch can melt even the strongest steel
+
+говорит на латыни
+
+And when they see it, they will 
+The Daybreaker
+
+solar scepter
+
+staff 
+sword Luna
+warhammer
+spear
+
+battle staff
+made from alicornite
+Daybreaker
+
+
+hornguard
+
+
+
+
+
+
+
+
+ Celestia replies, her breathing becoming heavier as Chrysalis pulls her further into the passionate embrace. " I love
+
+
+"Love is about taking the risk to build something strong by embracing your fears and overcoming them, not by giving into them and allowing them to control you. Your nature is not to devour; it's to love with all your heart. And that is what makes it stronger than anything else... including fear."
+
+
+дует ей в лицо раскаленным паром
+
+Кризалис покусывает её шею ин смалл лавбайтс
+
+Прокусывает основание шеи
+
+
+The urge to live. Unstoppable, panic-inducing urge.
+
+
+
+Кризалис превращает свои ноги в кошачьи
+
+
+
+
+It's not easier to give up yourself... To live with yourself after.
+
+"I am the Princess of the Sun." Celestia growled, her forelegs tightening their grip around Chrysalis's head. "My heart beats with blazing fire, the fire to burn the world and forge a new dawn, to purge all darkness and leave only light behind.
+
+Shoved her into the corner. Переворачивается на копыта, пятится.
+Pushed her away.
+
+"You've hurt my Sister, my ponies, my realm, and me. You seek to undermine and destroy me. You and your juvenile lusts and greed... You're wasting the hundreds of years of my labor."
+
+Chrysalis laughed, and drops of glistening saliva fell from her ardent snarl.
+"And this is [b]perfect[/b], isn't it? The little old me, toppling [b]everything[/b] down!" She braced herself. "Just [b]try[/b] and stop me."
+
+
+Размазывает сталактитом Кризалис
+"Show yourself."
+
+
+I refuse to surrender to you. Not now, not ever. 
+
+
+
+I think that you need it as much as I did.
+
+lanky monster, that is so thin and malnourished. Her hooves dig deep into Celestia's soft coat, as well as into a bit too grown flank after all this sitting in one place and consuming sweets. Chrysals breathes warmly, satisfied, and her fire keeps going, as bestial loud slaps fill the throne room. 
+
+
+
+
+Celestia grins mischievously, and covers her face with a wing coquettishly.
+
+
+Перечитать
+
+
+Determination.
+Will.
+Will to power.
+
+
+размазывает её кристалом
+Кризалис превращается в гигантского паука и заполоняет Кантерлот паутиной
+
+"Tell me"
+
+пробивает череп мечом, она горит
+
+"убивает" несколько раз, пока кризалис не останавливает её броском Твайлайт
+
+целестия в броне
+
+
+
+
+Lux æterna!!
+
+
+At the West I was known as the Mistress of thousand bits.
+
+
+
+And hundreds of poisonous snakes rushed at her
+
+Still
+
+
+You are no threat to me, and you never will be. Now scurry back to your hive, insect.
+
+
+
+
+
+
+
+The Equestria was never conquered, and it won't be the day my realm falls.
+
+
+The world should be unpredictable and chaotic.
+
+
+_her mane flowing down her back in a gentle wave._
+
+
+
+ Celestia desired to be like clay under the tender touch of this imperious master potter.
+
+
+
+Energetic. Determined. Virile.
+
+
+Be lost in me.
+You inspire me... I want to be mad. I ache for your touch, and I know I shouldn't.
+
+
+Loud, breathy moan.
+
+
+but you won't do it
+
+ Chrysalis knew her craft—it was hard not to imagine her perfecting the ability of draining love through the hundreds of years. She was testing will, finding a weakness, and sinking her hooks without any mercy.
+
+
+
+Celestia wanted to submit badly. If there was 
+
+Когда покусывает шею Целестии
+
+Кусает Целестию
+
+
+
+
+Lux Æterna! Come!
+
+Spear
+
+Swords
+
+A warhammer
+
+
+a bladed hornguard
+
+
+
+
+
+Celestia couldn't escape her nature.
+
+
+Her fire felt as hot as her own, maybe even hotter.
+
+"Fear."
+
+The Queen was elated. Her wings buzzed, as she was slowly stepping away from the crumbling rubble. Her voice rang with echo: "Fear... Do you truly feel it? The unknown... The [b]ambiguity[/b]... Fear is wonderful..."
+
+Celestia wanted to fight her for real now. Not to go through motions, not to be engaged in some vague combat, not to act out battle that can end only in one way. She wanted to feel all the same that the Queen felt: passion and [i]love[/i] for fear, [i]love[/i] for life. This thrill...
 
 all thoughts of pride and decorum were tossed to the wind
 
 
+she felt a river of dark flame inside
+
+
+
+
+You know... I think you are exactly who you are. You are simply a pony who wants to do good by others. To shine bright. To light the way for them. 
+
+Maybe I am, at my core, is simply like that. And you want to exploit the ponies like me, don't you? That is why I must protect the innocence from the creatures like you and your corruption, you leech!
+
+How do you love to complicate things...
+
+
+
+And still, you are failing on every turn, do you?
+
+
+
+
+
+you are a vergence
+
+
+
+
+
+
+struggle in the most delicious form of passion for her Queen.
+
+
+ creature
+
+
+
+I want to play with your feelings... I want to have my way with you.
+
+
+desecrated corpses
+
 Кризалис кусает шею in small lovebites
 Целестия сжимает коленки
 
-"Our souls entwined. Do you feel it?"
-
-"You feel a kinship with the star..."
+"O
 
 
-"Must be lonely - to be the most powerful being in existence."
+
+
+
+
+Гниль,
+Тараканы, насекомые и черви лезут из фальшивой Кризалис
+
+
+
+
+
+*Celestia laughs softly, her breath catching in her throat from the way she stares. The alicorn princess crosses her legs, leaning back and her wings wrapping around her torso.*
+
+"I would tell you that it takes more than some cheap charm to impress a princess, but I also know that you're not bluffing. You're a master of your craft, and when it comes to manipulation and temptation - well, you're simply brilliant. Maybe it's because of my position as an alicorn and a princess, but I must admit it's... tantalizing."
+
+
 
 dendro
 magic
 
-I can give you such delightful pain. Pain so acute and pleasurable, so exquisite that you will not be able to take your mind off me. I will invade your dreams, my caresses will linger on your skin like a sweet fragrance. You will be addicted. I will bring you heaven, and perhaps... if you are good... a few seconds of hell too.
+How many ponies have you lured into your web and turned your little toy, hm? How many poor fools have thought to oppose you, only to end up giving into your charms and begging for mercy?
+
+
+
+I can give you such delightful pain. Pain so acute and pleasurable, so exquisite that you will not be able to take your mind off me. I will invade your dreams... You will be addicted. 
+
+, my caresses will linger on your skin like a sweet fragrance. I will bring you heaven, and perhaps... if you are good... a few seconds of hell too.
 
 
 Love is an individualistic power. When you love, you want to live. You have something to fight for.
+
+
+Eerie green glow emanated from her eyes
+
+
+
+
+
+
+Chrysalis laughed. "[b]Good[/b]."
+
+
+I refuse to surrender to you. Not now, not ever. 
+
+
+I want to paint the realm red with your blood, my muse. You inspire me for violence.
+
+
+
+Whisper me your deepest, darkest debauchery. Uncover your soul and let me take a glimpse into what you [b]truly[/b] want.
+
+
+
+
+Кризалис говорит что нашла статую Твайлайт, что убила её, и пытается использовать её чтобы Целестия атаковала её
+
+Кризалис прикрывается статуей твайлайт
+
+
+No intercessors!! 
+магма под копытами. весь город вздрагивает
+
+
 
 
 Целестия размазвает Кризалис огромным сталактитом по стене
@@ -36,10 +886,7 @@ Love is an individualistic power. When you love, you want to live. You have some
 "I only [b]crave[/b] your essence. Crave you."
 
 
-Ласкает основу её крыльев. Целестия раскрывает их шире, желая больше
 
-
-"Do you want to be worshipped, god?"
 
 
 "And yet here you are, allowing *me* to make you feel that way. I can feel your heart rushing in your chest, and I feel your desire burning just as hot as the sun that I raise, and I love every bit of it. I love the way that your primal instincts take over you, the way that you surrender to me and allow me to take control. That's what real queens do." *Celestia giggles softly, her wings rustling softly as she opens her eyes and looks deep into Chrysalis' eyes.
@@ -57,7 +904,6 @@ sneered abrasively
 
 She couldn't, nor she not wanted to conceal her feelings: her voice was quivering. 
 
-a needy, hungry beast.
 
 sensuos and violent
 , but not before a sudden short gasp left her.
@@ -86,39 +932,216 @@ Celestia couldn't say anything. She moved her head away, breathing erratically.
 
 sweet, spicy honey
 
-That is how I like to see you... Chrysalis cooes, caressing Celestia's cheek Alive. Unsure. Full of temptation. Of conflict. Of desire. Balancing on the edge.
+"That is how I like to see you..." Chrysalis cooed. "Alive. Unsure. Full of temptation. Of conflict. Of desire. Balancing on the edge."
 
-There is no step over some line...
-Some say you step over some imaginary boundaries.
-In reality, you push your limits. You engage in a game of compromises with yourself and with your conscience. You realize that there are things that you can get away with.
-The things that can grant you more pleasure than pain...
+
+
+
 
 Your nights will never be dull, and your days will never be boring
 I am a very versatile lover
 
+Is that so? 
+
+I want to tear you apart.
+
+
 Celestia felt the changeling's passion and despair.
+
 
 Покрыта потом и испариной
 
-I hear your speeches about Harmony, and I hear a ripple on the water that tries to describe what water is.
-I hear snow that deludes itself as falling leaves.
-An ash, dreaming of wind.
-The eternal truths are lies. 
 
+
+
+Celestia... Have you ever been in the dark forest, where nothing makes sense?
+
+
+
+Говорит про судьбу и про воспоминания
+
+
+После волка превращается в птицу и летит в башню
+
+
+
+Пов Луны. Старлайт помогает на фоне. Она видит как Целестия и Кризалис сражаются, все крушится, все башня ходит ходуном. Они наконец переносят битву к ним
+
+что-то мягкое падает (Старлайт)
+Луна 
+
+Использовать теги left и right
+
+"Do you love me as I love you, Sister?"
+
+"Have you ever felt desire for me, Sister?..."
+
+"You should've proposed to me, Sister."
+
+"You've been missing out, Sister..."
+
+"Did you know how lonely I was, Sister?"
+
+"You should've tried to comfort me at night. Maybe just once..."
+
+"Or twice..."
+
+"Thrice..."
+
+Одна кусает за бочок, в они все обнимают её, сжимают в объятьях. 
+
+"Maybe I would've wanted this..." whispered her voice, sending shivers of disgust and and pleasure.
+
+"Maybe I would've expected this..."
+
+"Maybe I craved you all along..."
+
+"To share thoughts with you."
+
+"To share burdens with you."
+
+"To share every little thing with you."
+
+"Think you will ever get another chance?" шепчет одна в одно ухо
+
+"You will never learn how it feels," laughed the other one.
+
+У другой загорается рог, и она шепчет во второе: "Stay away."
+
+Телепортирует её вместе со всеми остальными. Те тают, смеясь. Старлайт телепортирована тоже
+
+"How long I was out!?"
+
+"A day."
+
+"A single day?..."
+
+Земля дрожит. Сражение продолжается.
+
+--
+
+"I am surprised you've played along."
+
+"I've wanted them out just as well."
+
+
+Кризалис частично превращается
+Она превращается на бегу и таранит Целестию, становясь быком
+
+Her body is relaxed, as though this is her natural, intended state. Her muscles are loose and flexible,
+
+
+После того как утелепортируют Луну
+
+
+
+
+
+_The alicorn was only intended to reign over Equestria for but a short time, and she had spent her entire life fighting for their prosperity._
+_She had never realized it, but she was right - she had never been meant to rule. She had been meant to be free._
+
+Больше про контекстное понимание персонажей, меньше про высказывание того что они чувствуют прямым текстом
+Не говорить в прямой речи о том что они чувствуют
+
+"How?"
+
+
+
+"This is so interesting to me..."
+"Why are you here?"
+
+
+
+
+"I think that you were meant to be free."
+
+
+"How did you managed to pull it off?"
+
+
+"Meaning?"
+
+"This Equestria of yours..." 
+"All good things in time inevitably spoil, and yet [i]somehow[/i] this realm existed for hundreds of years.  its unchanging leader, at its helm. You held it all together for so long."
+"This is so strange to me. Is it because it was fated to be so? "
+"Any other creature would've slipped or gone mad at your position."
+
+
+"The compassion."
+"This is ridiculous..."
+
+You were never meant to be a fighter or a ruler, aren't you?"  Chrysalis.
+
+
+
+
+"I [i]am[/i] a ruler. I am the Queen of the sun-blessed lands. However, by design I wasn't supposed to remain in power for so long. No one, even the most powerful Queen, is not supposed to remain the same for over a millennium. It is not what my fire was meant for, it is not what my [i]wings[/i] were meant for, but, I love my ponies nonetheless. I had found my happiness in them. I love this world, I love it all..." Celestia's voice treacherously quivered. "I really do."
+
+
+"Compassion."
+"You were simply compassionate."
+"" Она смеется. ""
+"Feelings can be dangerous, don't they?"
+
+But I can see how your compassion was only thing 
+That is the only thing 
+
+"How can someone like you exist? This is... ridiculous." Chrysalis stared. "This compassion is your greatest strength and greatest weakness, and it seems to me that it is all that ever came to you naturally. To everything else you simply adapted."
+
+"Adapted?..." Celestia repeated numbly. "Didn't you said before that we cannot adapt?"
+
+"[i]We[/i]?..." Chrysalis stuttered, a brisk confused expression washed over her muzzle. "We are meant to be free. If it [i]doesn't[/i] mean to be able to adapt, then this freedom is worthless." 
+
+"So you're saying that my kindness is what makes me strong? You really think that my compassion is a strength?" Celestia inched forward, suddenly aching to hear the answer.
+
+And Chrysalis' words soothed her pain. "You are burning bright with unmitigated compassion. It is a power, [i]yes[/i], it is the only thing that could held your realm together for so long. It is something that allowed you to never give in to vices, never fall prey to your isolation." The changeling laughed abruptly and gave her a curious look. "That's so foolish... yet I [i]cannot[/i] be mistaken, it [i]is[/i] a genuine strength! Why else would you still try to love and protect ponies, even though you have every reason to despise them? You quelled your bleeding heart, and through restraint and undifferentiated compassion, you never allowed the weakness of affection. [i]This[/i] is the nature of your principles, [i]this[/i] is the sacrifice you were talking about: the conscious choice between your happiness and others'!"
+
+"My choice was a compromise, to find companionship in books, scrolls, and the stars. I had to push through. I couldn't stop. I couldn't allow the regrets to wash over me, for they will erode my will and my mind. I needed to shape myself into what Equestria required at the time, to [i]do what must be done[/i] for my ponies to thrive. I wanted an opportunity to make right by my Sister." Celestia heaved her breath, feeling as if burden leaving her. It felt good to finally express it out loud. "I have become static, warm, and ever-present guardian for everyone—is it not the epitome of power and authority?"
+
+Chrysalis was quiet for a few long moments. "I can admire your ability to shape," she spoke sullenly. "All of this is so ludicrous... I can admire everything about you." She pursed her lips. "I am Chrysalis. I am not [i]supposed[/i] to."
+
+"So even you, the Changeling Queen, can be afraid of your emotions?" 
+
+I will [b]show[/b] you emotions.
+
+"You are like a dark mirror," Celestia muttered with a pained smile. This cruel narcissist...
+
+"I am a mirror to [b]no[/b] one!" Chrysalis growled defiantly. "I can collect the reflections of others, but I am a being of my [b]own![/b]"
+
+"I can admire that, too," admitted Celestia.
 
 Облекаемые огнями. 
+
+Кризалис успокаивается.
+
+Кризалис кричит, и затем все зажигается ярким зеленым
+Они взмывают к потолку
+
+
 Neighed loudly, raising on their hindlegs
 
 
-You were never meant to be a fighter, or protector... Aren't you?
-I think I understood you. You are too kind, too compassionate... It is your greatest strength, and greatest weakness. But it is all that is ever came to you naturally. To everything else, you've just adapted.
+
+"This is the feeling that I want. No constraints, no limitations, no definitions or expectations of what I _should_ be. Just us, our movements and our passion for living. Without owing anyone anything. I am what I am. I just want to be _free_." It's like a rush of fire is flowing through her body, her breathing quickening and her heart pounding in her chest. "This is the one place where I can express myself, where I don't have to hide myself or try to act like someone I'm not. _This_ is my freedom."
 
 
 
-"This is the feeling that I want. No constraints, no limitations, no definitions or expectations of what I _should_ be. Just me, my movement and my passion. I don't owe anyone anything, I am what I am. I just want to be _free_." It's like a rush of fire is flowing through her body, her breathing quickening and her heart pounding in her chest. "This is the one place where I can express myself, where I don't have to hide myself or try to act like someone I'm not. _This_ is my freedom."
 
 
-Regret poisons the will and the mind. I don't need to remember how it tastes like.
+1. ### _[_12:03_]_Flovv Krovv_:_ 
+    
+    The past and present became one. It was a constant nightmare of thousand sacrifices, so in the end everything remained lost in the darkness, everything repeated, everything remained the same. (изменено)
+    
+2. ### _[_12:04_]_Flovv Krovv_:_ 
+    
+    Вкладывает всю силу в последний удар
+    
+3. ### _[_12:05_]_Flovv Krovv_:_ 
+    
+    Пробивает гору
+
+
+I don't need to remember how it tastes like.
 But to me you may as well be made out of it... Most intriguing.
 
 If you don't feel regret over anything, then you might as well be living dead.
@@ -141,18 +1164,19 @@ You told me I'm not fit to be a Queen... But I am the Queen!
 
 
 
+Then I will burst open [i]Daybreaker[/i].
 
-She felt the urge to life. Unstoppable, panic-inducing urge.
+The crone 
+
+My sight is not the same these days. Say hello to her and others, will you?
+
+Of course, old friend.
+
 
 
 Blowing a steamy breath in her face
 
 Речь вампир кинга посм.
-
-"You've come here with your juvenile lusts and greed, and you are wasting hundreds of years of my labor!"
-
-"This is perfect, isn't it? One little old me, toppling everything down."
-
 
 "You are mad, Celestia. Mad, mad mare living in a mad, mad world... a mad, mad cog... Don't you hear how it is... ticking?"
 
@@ -162,7 +1186,9 @@ Blowing a steamy breath in her face
 
 Sound of breath.
 
+Are you enjoying this?
 
+Is this what you want? To defeat me again and again?
 
 
 "And I am mad as well. We both are so, so mad."
@@ -170,7 +1196,7 @@ Sound of breath.
 "Yes, I am mad." "I [i]am mad.[/i] I am absolutely livid."
 
 
-Хватает за "корону" на голове королевы и чуть не отрывает
+
 
 когда падают
 their cries blended together
@@ -180,19 +1206,52 @@ We were at the altar together twice already. Do you remember?
 
 You used my ponies against me!?
 
-How funny is that... I remembered something. You were there when I thought my dreams to be achieved.
-When I stole the love of your little niece.
-You were staring [b]down[/b] at me, like you usually [b]do.[/b] 
-Do you remember? We already had been at the altar not once, but twice, together...
-So that was destiny is? The repetitive pattern!?... Like new coils of a tree...
 
-Maybe it is a patterns of a tree, of an asymmetrical one, never completely the same. [i]A third option.[/i]
-Leave, Chrysalis.
-Leave in flee.
+Кидает ей статую твайлайт
+
+
+Целестия начинает припаивать отколотый рог обратно к Твайлайт
+
+Will your little toy be fine?
+
+"You do not care."
+
+"" 
+
+Целестия припаивает рог как паяльником. She was frozen into a stone by a specific type of spell that prevents any harm or effects of corrosion. If I am to reverse it right now, she is supposed to appear whole.
+
+Why do you bother?
+
+I worry about her, and I don't want to leave her future to a chance.
+The spell that I used could've been faulty. It wasn't practiced for a while.
+
+I have devoured today a [i]lot[/i] of my own, preparing for this... I have made [b]such[/b] a sacrifice for you, and you can't even spare a single one. 
+
+--
+
+Don't look at me like [i]that[/i]. Before you've learned they are similar to ponies, you've spared no sympathies to them.
+
+Are [i]you[/i] going to lecture me on morality?
+
+Смеется. I'll have you know, I've left enough minions lying in wait. Should I perish, they will strike, and I will take as many lives with me as I can."
+
+"Scare tactics won't work anymore."
+
+Good... While I was consuming them, I wondered, just [i]what[/i] had driven me to create them in the first place?... Maybe I was lonely too, once. Can you imagine? 
+
+Они говорят про свадьбу и про судьбу
+
+
+And, that's funny... I remembered something... You were there when I thought my dreams to be achieved for the first time, when I stole the love of your little niece.
+Do you remember that we already had been on the dais with the altar, for all to see? You were staring [b]down[/b] at me, like you usually [b]do.[/b] Oblivious. Filled with your righteousness. 
+I kept thinking about it, and about all other things that happened, and I have to ask now... Is that your beloved destiny? The repetitive pattern that we find ourselves in? Like new coils of a tree...
+
+The destiny is akin to a patterns of a tree, of an asymmetrical one, never completely the same. It is the stories that we can tell ourselves, the pitfalls that we fall in again and again. The similitudes that we can recognize.
+Телепортирует Твайлайт и поворачивается к Кризалис. Leave, Chrysalis. Flee.
 
 Chrysalis stopped as well. Her attentive eyes were taking in any movement.
 
-Leave and show me your free will.
+Leave. Show me your free will.
 
 And what if I say that I want to leave together?
 
@@ -203,19 +1262,49 @@ Why won't we leave together?
 
 Обе смеются
 
+None of them truly worth to be saved, not your subjects, not mine, not that little girl.
 
-Celestia: Let's begin.
-
-Yes.
+Целестия призывает копье.
 
 
-Yes.
+Затопляет тьма и из неё вырывается гигантская волчица
 
+
+
+"[i]Is she serious right now?[/i]"
+
+Chrysalis kept staring, unmoving.
+
+Celestia wordlessly arched a brow.
+
+Chrysalis remained silent.
+
+
+
+
+ You'd know better than to ask, haven't you been turned into a statue before? 
+
+No, did you? Chrysalis snarled back, but then her expression turned confused.
+
+You've sounded oddly personal when you were speaking about them.
+
+
+Имя для копья
+и для mallet
+
+
+I remembered something.
+
+Is this real you?
+
+I was real every time.
+
+Then how do you do this?
 
 
 If [b]this[/b] is destiny... Then I am inclined to believe in it.
 
-Celestia... Have you ever been in the dark forest, where nothing makes sense?
+
 
 
 В башне
@@ -246,13 +1335,11 @@ Chrysalis was calm.
 "Have you ever been in the dark forest where nothing makes sense?"
 
 
-_The alicorn was only intended to reign over Equestria for but a short time, and she had spent her entire life fighting for their prosperity._
-_She had never realized it, but she was right - she had never been meant to rule. She had been meant to be free._
 
 
 My sopping wet Sun
 
-All the stars in the sky have conspired to bring us together. In another place, another time, we would've never met.
+
 
 
 Nothing to distract. No morality. No weight of choice or responsibilty.
@@ -260,9 +1347,6 @@ Nothing to distract. No morality. No weight of choice or responsibilty.
 Despite everything, they shared this deep-sated loneliness...
 
 
-"Trespasser..." _she whispered, her voice still filled with breathlessness and ecstasy_ "You think you can take anything you want..."
-
-"I want your heart." "Give it to me." "I'll rip it out."
 
 
 
@@ -276,9 +1360,11 @@ Have you ever been in a dark forest where nothing makes sense?
 
 Сжимает коленки
 
-She could use her body like a delicate instrument that it was. It wasn't built for [i]fighting[/i], after all. Not really. Celestia desired to be was like clay under her tender touch. 
 
-_and her wings expanded, taking over the entire hall and making it appear as if a shining sun filled with light occupied the throne room._
+
+
+
+
 
 *Celestia remained passive under Chrysalis's strong grip. She closed her eyes and enjoyed the embrace.*
 
@@ -288,16 +1374,12 @@ _and her wings expanded, taking over the entire hall and making it appear as if 
 
 "I feel... something," *she whispered, her eyes still closed,* "something... I... don't want to resist..."
 
-_her mane flowing down her back in a gentle wave._
-
 
 
 
 Когда падает
 
-Оглушающий крик
-Два крика звучат как один
-Roar 
+
 
 "I'm sorry, everyone. I'm
 
@@ -320,11 +1402,7 @@ The path to freedom and path to enlightment is one and the same.
 
 Sundew...
 
-Eerie green glow emanated from her eyes
 
-"You trifle with the Sun itself..."
-
-"My sopping [b]wet[/b] Sun"
 
 ""
 
@@ -340,18 +1418,11 @@ Seems you truly was desperate.
 The duel of highest level unicorns is not unlike a conversation
 
 
-"My minions are lying in wait. Should I die, they will overtake this city. I will take as many lives with me, as I can."
-
-"Scare tactics won't work on me anymore. Do your worst."
-
-Chrysalis laughed. "[b]Good[/b]."
-
 
 
 ""
 
 
-Get lost in me.
 
 Celestia had no prediction of what can happen. No idea. No clue. 
 
@@ -383,23 +1454,7 @@ Chrysalis knew where Celestia exactly longed to be touched.
 
 Why is it feels on the brink of winning...
 
-It's not easier... To give up yourself... To live with yourself after.
 
-
-I want to paint the realm red with your blood, my muse. You inspire me for violence.
-
-
-Energetic. Determined. Virile.
-
-Whisper me your deepest, darkest debauchery. Uncover your soul and let me take a glimpse into what you [b]truly[/b] want.
-
-Когда покусывает шею Целестии
-I admire your spirit. To defy me on every turn, but still be willing to play with me... You are full of courage and hubris.
-Кусает Целестию
-Forcing their bodies against one another, as if in drunken stupor. Blood trickled down Chrysalis' chin. 
-"My playmate. I love the sound of that." "What if I play too rough and break you?"
-
-"Are you afraid of that?"
 
 
 "I would've offered you to run again, but..."
@@ -416,6 +1471,12 @@ You couldn't keep it in yourself...
 Antimagic? Where did you get that?
 
 I see you're running low.  So you tried to seduce me?
+
+
+and violently dragging her, with the Queen's hot blood splattering on her muzzle, she fell—they both fell, their earsplitting roars sounding like one.
+Оглушающий крик
+Два крика звучат как один
+Roar 
 
 
 Ломает ей ногу.
@@ -525,7 +1586,7 @@ To devour is to love and admire. There's nothing more intimate than to become on
 
 "To devour is to show true admiration and love. There's nothing more intimate than to become one with someone... Especially like this... Slowly... Piece by piece... Savoring each one."
 
-"To devour is to show true admiration and love. There's nothing more intimate than to become one with someone... Especially like this... Slowly... Piece by piece... Savoring each one." Chrysalis explained slowly and intimately, and then made a tremulous sigh, elated by the prospect of eating the Sun demigoddess, "You are the most precious thing for me in existence. I **want** you in me."
+"... Especially like this... Slowly... Piece by piece... Savoring each one." Chrysalis explained slowly and intimately, and then made a tremulous sigh, elated by the prospect of eating the Sun demigoddess, "You are the most precious thing for me in existence. I **want** you in me."
 "One night I might lose **all** restrains and sink deep..." She licked her fangs, "Are you afraid of it?"
 
 *She felt a cold shiver at her words, as she heard the hunger in her voice. To her surprise, her face heated up and she went red instantly.*
@@ -539,7 +1600,7 @@ To devour is to love and admire. There's nothing more intimate than to become on
 *The words fell out of her mouth, as she realized how intimate and how close being devoured would make her to someone she loved.*
 
 
-raw lust
+
 
 
 
@@ -595,6 +1656,12 @@ Her dreams were dreams of happiness and purpose.
 "Day?"
 
 
+Parasite!
+
+
+
+
+
 f
 
 
@@ -615,15 +1682,13 @@ I want to indulge in all kinds of debauchery. I want to learn all your curves. I
 
 "I want to tear you apart. I want to drag you down in the darkest, deepest caverns, and hoard every last bit of you for myself. I want to hear your screams 
 
-It was a frightening realization that she may senselessly perish, and she has no control over it. The Princess tried to quell the flames of lust, burning her, threatening to engulf her entire being.
+ The Princess tried to quell the flames of lust, burning her, threatening to engulf her entire being.
 
 "My enemy and lover~" Celestia moaned through clenched teeth, as her horn shone with condensing power, "You keep bringing me most sweetest gifts..."
 
 Chrysalis watched in awe, pushing against her even more insistently, more intimately. She reached for her lips. 
 
 
-
-What better way is there to finally settle an ancient rivalry, than to devour one another?
 
 На крыше:
 
@@ -648,7 +1713,8 @@ Have you ever been in the dark forest, where nothing makes sense?...
 
 
 
-the thrill of the chase, that edge of danger, that uncertainty.
+
+
 
 Luna, Twilight, everyone... have a good life.
 
@@ -661,11 +1727,6 @@ Do you feel it? Forbidden, and yet tantalizing...
 
 "I am compelled to your light, and I won't run from it."
 
-Her skin was like suede, smooth and tempting. 
-
-She felt like a drug.
-
-Her voice dripping like honey.
 
 "Do you want to pour all your hatred on me?"
 
@@ -760,7 +1821,7 @@ her breastplate
 What if I know where you hid your little Twilight Sparkle?... Maybe you will wake up tomorrow with her stone head, broken off from the statue, lying at your knees with that delicious expression of despair...
 
 
-She pushes the alicorn harder to the throne, and to the wall. She's ever so ravenous, this lanky monster, that is so thin and malnourished. Her hooves dig deep into Celestia's soft coat, as well as into a bit too grown flank after all this sitting in one place and consuming sweets. Chrysals breathes warmly, satisfied, and her fire keeps going, as bestial loud slaps fill the throne room. 
+She pushes the alicorn harder to the throne, and to the wall. She's ever so ravenous, this 
 "Our souls entwined," she murmurs, "Do you feel it?"
 
 a carnal dance
@@ -780,7 +1841,7 @@ Together we are more alive, than on our own...
 
 "Such fury."
 
-"You're a *monster*..." Celestia groans, moving her face closer to Chrysalis's ears, "You deserve to die..." she rasps, "Your crimes are unforgivable..." but now there is a strange glow of excitement and pleasure in her eyes... she is getting used to the Changeling's closeness, even though the touch of her enemy makes her shiver with disgust... but her hatred for her only grows stronger...
+
 
 
 
@@ -808,47 +1869,7 @@ You make me forget... My guilt... My fear... My loneliness... Everything goes aw
 
 pledge your loyalty to me
 
-Пов Луны. Старлайт помогает на фоне. Она видит как Целестия и Кризалис сражаются, все крушится, все башня ходит ходуном. Они наконец переносят битву к ним
 
-Использовать теги left и right
-
-"Do you love me as I love you, Sister?"
-
-"Have you ever felt desire for me, Sister?..."
-
-"You should've proposed to me, Sister."
-
-"You've been missing out, Sister..."
-
-"You should've tried to comfort me at night, maybe just once."
-
-"Or twice..."
-
-"Thrice..."
-
-Одна кусает за бочок, в они все обнимают её, сжимают в объятьях. 
-
-"Maybe I would've wanted this..." whispered her voice, sending shivers of disgust and and pleasure.
-
-"Maybe I would've expected this..."
-
-"Maybe I craved you all along..."
-
-"To share thoughts with you."
-
-"To share burdens with you."
-
-"To share every little thing with you."
-
-"You will never get another chance." шепчет одна в одно ухо
-
-У другой загорается рог, и она шепчет во второе: "Stay away."
-
-Телепортирует её вместе со всеми остальными. Те тают, смеясь. Затем Старсвирл и Старлайт телепортированы тоже
-
-"I am surprised you've played along."
-
-"I want them out just as well."
 
 
 В БАШНЕ ПОСЛЕ ТОГО КАК ЛУНА ТЕЛЕПОРТИРОВАНА
@@ -856,7 +1877,7 @@ You are jealous!
 
 Of course I am.
 
-
+ЧУВСТВО ЭПИКА И ГРУСТИ
 
 Целестия превращается в ослепительный белый шар как в s 1 ep 1
 
@@ -921,6 +1942,7 @@ Such fervor... она шипит, расползаясь червями, ско�
 "Mare of my dreams."
 
 
+ЧУВСТВО ЭПИКА И ГРУСТИ
 
 
 "I do not seek to suffer, so my emotions must be cast aside."
@@ -979,7 +2001,7 @@ Chrysalis : "Don't keep me waiting."
 
 It was like a play that they wanted to enact.
 
-ЧУВСТВО ЭПИКА И ГРУСТИ
+
 
 Про то как она вспрыгивает на балкон, и её последующий спиц
 
@@ -1012,15 +2034,11 @@ Led by a strange compultion, Celestia touched her wound in an elegant, precise m
 
 The sight of her blood though? That was different. 
 
-"What do you feel when you watch your immortal blood ebb away?"
+
 
 "Fear." Celestia responded ever calmer.
 
-It was so unusual, to fear death, to fear for [i]herself[/i]. She savored the sensation, known to her but almost forgotten. 
 
-The Queen was elated. Her wings buzzed, as she was slowly stepping away from the crumbling rubble. Her voice rang with echo: "Fear... Do you truly feel it? The unknown... The [b]ambiguity[/b]... Fear is wonderful..."
-
-Celestia wanted to fight her for real now. Not to go through motions, not to be engaged in some vague combat, not to act out battle that can end only in one way. She wanted to feel all the same that the Queen felt: passion and [i]love[/i] for fear, [i]love[/i] for life. This thrill...
 
 "Are you creature of fear, Chrysalis?" Celestia smirked, walking towards her.
 
@@ -1168,6 +2186,7 @@ mortician ponies
 
 The memorial garden.
 
+Кризалис выглядит целой
 
 The garden cemetery.
 

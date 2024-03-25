@@ -17,15 +17,342 @@ And I can live with the pain.[/center][/quote]
 There's nothing more true to us than hungers and desires... The [b]powers[/b] that move the world itself.
 
 
+Harmony is a natural state of being, when things are working together, complimenting one another.
+
+
+Целестия знает что world is chaotic
+
+You want for everything to be logical
+причина и следствия
+for the world to make clear sense
+but you know it is not
+
+You want me to invite corruption?
+
+You want me to see how my ponies, my Equestria becomes something disharmonious, something worse?
+
+reverie
+
+
+And how is it wrong for everyone to have a purpose and significance?
+
+
+Do you want to despoil me and my ponies? To make me like you?
+
+
+With their connection to the dream realm restored, ponies will become more ambitious, it is true. More invested into what lies beyond the horizon.
+I've seen it for myself. It is not something that I can contain.
+
+
+That perfect girl won't save you.
+It won't save us.
+Only ones who can save us are ourselves.
+
+Why do you want to ruin me?
+
+
+"We have to be stronger for them." -- Кризалис, когда выбираются наружу
+
+Целестия смотрит на неё снаружи и видит что она вся помятая и измочаленная, но все равно держится. Shapeshifter...
+
+
+Перечитать catharsis в дискорде для материала
+
+
+No, Celestia... You might be far more cruel than I am. I cast a illusion on only one pony, maybe a number of them, while you wanted to fool the whole world... Into your fairytale... And just bail, not even sticking around to find out how it ends... To maintain your belief and not give yourself even a shred of evidence of the contrary... Chrysalis nuzzled into her with strange tenderness How I adore you... 
+
+isn't killing far more honest?...
+
+
+— Ничего не бывает убогим или безобразным само по себе. Нужна точка соотнесения. Чтобы девушка поняла, что она нищая уродина, ей надо открыть гламурный журнал, где ей предъявят супербогатую красавицу. Тогда ей будет с чем себя сравнить. — А зачем это нужно девушке? — Ну-ка, объясни сам, — сказал Иегова. Я задумался. — Это нужно… — и вдруг вампирическая логика правильного ответа стала мне очевидной, — это нужно, чтобы те, кого гламурные журналы превращают в нищих уродов, и дальше финансировали их из своих скудных средств!
+
+Everything is beautiful.
+That is why I want to be ugly.
+
+
+harmonious reverie
+(reverie - мечтательность, сон)
+
+
+We are ancient enough to make a mockery of any rules and customs
+
+
+
+It is frightening...
+
+To be open? 
+
+It is frightening to hope.
+
+1. ### _[_15:48_]_Flovv Krovv_:_ 
+    
+    "World where Harmony reigns is a world of no surprises, no 'drive'. Everything is predictable."
+    
+
+- ### _[_15:49_]_Flovv Krovv_:_ 
+    
+    There's no strength in it. No _power_. No _conflict_.
+    
+
+3. ### _[_15:59_]_Flovv Krovv_:_ 
+    
+    To struggle and fight, and prevail, there is where life is
+
+I have strength. 
+I don't have a desire.
+
+
+to cut me down when I'm up high?
+
+
+If the harmony is possible in Equestria, then it can be assumed that it is possible in the whole world. 
+That it is possible everywhere.
+That it [i]is[/i]... [i]possible[/i]. I believe that our sequestered cluster can slowly impart it into others, that through generations, through strive and errs, it can be cultivated like a stubborn seed. It [i]can[/i] exist, Chrysalis. It [i]can[/i]. This world is all about this... this world...
+плачет
+I want it to be true.
+
+The nature of the world is chaotic. It is a boiling pot of unpredictable colors, of voices that try to outcry one another. To put it all under one familiar system would be to make it devoid of life.
+There will always be those who will rise against your vision. We will never stop, not even you will force you to submit. You will find a way to overthrow us. It is life. 
+And you always knew it, don't you?
+Maybe everything is more simple than you imagined.
+You want for the world to be logical and comprehensive.
+But it will never be so.
+There must be strife.
+I can't believe in this world of perfect equinox...
+But I can believe in you.
+
+
+I can believe in you.
+
+I want to believe in us.
+
+What even is this us... We are enemies.
+
+No... We are the Queens of Equestria.
+
+You are a foolish changeling who is well over her head.
+
+And you are a fool with impossible dreams. I like the impossible. All your existence is about striving for something that you might never achieve... A chase for ideals... I can believe in that.
+I want for this struggle.
+To lift you up.
+
+
+Про страх открыться
+
+https://www.youtube.com/watch?v=mScpHTIi-kM
+
 [center]ᴛʜᴇ ᴇɴᴅ
 ᴏꜰ ɪ[/center]
+
+revealing her heart and soul without any filters or walls to hide behind.
+
+
+1. ### _[_23:16_]_Flovv Krovv_:_ 
+    
+    It was so exhilarating to take my wrath on them...
+    
+2. ### _[_23:17_]_Flovv Krovv_:_ 
+    
+    And I only wanted more. More hate. More. I couldn't stop, and I didn't wanted to
+    
+3. ### _[_23:18_]_Flovv Krovv_:_ 
+    
+    This power...
+    
+4. ### _[_23:19_]_Flovv Krovv_:_ 
+    
+    The rush of victory
+    
+5. ### _[_23:19_]_Flovv Krovv_:_ 
+    
+    What can be more sublime?
+    
+6. ### _[_23:21_]_Flovv Krovv_:_ 
+    
+    I am addicted to this feeling. I want to keep winning
+    
+7. ### _[_23:30_]_Flovv Krovv_:_ 
+    
+    Glowering
+
+После того как пробивают гору 
+I don't care about myself and my well-being. 
+
+Don't act as if you care. 
+
+Рассказывает про то как хейтит пони Шрам 
+
+Nasty. 
+
+Grotesque, right? I usually try to conceal it, but what's the point anymore. What's the point of anything. It all changed.
+
+"You must be confusing conflict with compromise, changeling." Celestia laughs to herself in between her raspy breaths, the heat of her aura rising like flames from a raging fire. "Conflict is about destroying each other; compromise is about coming together for the sake of creation. 
+
+
+Love should not be about tearing one another down, but lifting each other up. Love should be about accepting each other, not about submitting to each other.
+"Love should not be about winning. Or about domination." I know that you are a creature that is able to compromise. You can cooperate.
+
+Only to get ahead. 
+Do you really believe that way? After everything? 
+
+
+guidance
+
+"Happiness is secondary to safety,"
+
+The world doesn't need 
+
+
+The world doesn't need killers and 
+
+
+I'm not pretending.
+
+Not this time. Are you?
+
+We need to strive for the impossible.
+
+
+
+Chrysalis buries her face in Celestia's chest.
+For the first time in a long while I didn't felt so empty inside. Do you feel the same?
+
+Целестия молчит.
+
+I see. Your silence speaks volumes.
+
+It's not that, you foolish changeling. 
+Our nature will work against us both. Even if you think
+
+You're so jaded, my alicorn.
+
+Am I?
+
+
+
+Поправляет её волосы
+
+You want to control the world? To make it predictable and known?
+
+
+
+
+
+
+I want you to take the risk. I want you to believe in me, Changeling Queen. I challenge you to believe.
+Do not try to control me
+
+Show me your heart. I want to know if there something, anything that's worth all of it.
+
+I will. If you promise that you will keep existing.
+
+
+You would rather be safe and miserable than risk the safety of your ponies
+
+
+
+
+
+1. ### _[_17:16_]_Flovv Krovv_:_ 
+    
+    Why would I want you to become a monster? I want you to acknowledge me. I want you to admit that I have the right to exist (изменено)
+    
+2. ### _[_17:17_]_Flovv Krovv_:_ 
+    
+    My powerful Sun... I want to hear you, alone
+    
+3. ### _[_17:18_]_Flovv Krovv_:_ 
+    
+    I don't want to destroy you.
+
+
+"You must be confusing conflict with compromise, changeling." Celestia laughs to herself in between her raspy breaths, the heat of her aura rising like flames from a raging fire. "Conflict is about destroying each other; compromise is about coming together for the sake of creation. Love should not be about tearing one another down, but lifting each other up. Love should be about accepting each other, not about submitting to each other."
+"Love should not be about winning. Or about domination."
+
 
 I envy you.
 Your self-confidence, the pride you take in who you are, your lack of shame...
 "I could never hate someone who is just so unapologetically *themselves*! I have tried so hard to be someone who is *perfect*, someone who has no faults or weaknesses, someone who can be admired... But you are just being *yourself*! If I could ever learn to be more self-confident and take pride in what I am... I wish I could have a tenth of your self-awareness and confidence. I should have been proud of what I was, but instead, I ran from it!" *She stares back at Chrysalis, clearly overwhelmed.*
 
 
+
+I tried so much to be perfect
+I can't someone who is being yourself
+
+Did you?
+
+
+
+You are simply a good pony.
+
+
+
+
+banish into the moon if it won't work out
+
+Why can't just release me? I've worked for 
+Why I must be... be this object! This is not me!
+Everything that I've done... It must have a meaning...
+
+
+Why I must feel this body [i]ache[/i] around me?
+
+
+
+
+
+
+It is *Mu*. The alternative to all the dichotomies. The enlightment and the emptiness. The alternative state of being. The freedom of it. 
+And you, you demand of me to stay here, to have this flesh and sweat around me, to have these feelings and uncertainties, and pain.
+To endure all this mortality... Didn't I already played my part? Didn't I already done all that was needed? Why I can't be free?  #FEFD96
+
+Is this tied to that Cosmic Council, somehow?
+
+
+
+You cannot save them all... There is no victory in being safe.
+You cannot weather everything in the world and keep them safe...
+You can't.
+And that girl won't save everyone either.
+
+And you know it. You always knew... at the back of mind, you must understand... I can feel it...
+Целестия плачет, и Кризалис плачет тоже
+
+She can't save them.
+No one will save us. No one.
+tears streamed freely.
+
+Was it her destiny?
+
+
+We all need to save ourselves.
+
+We need to make our own way.
+
+
+Can compassion alone save the world?
+
+
+I will light the way!
+
+Речь:
+Leave the old and embrace the new
+
+
+
+All this push and pulling..
+
+
+don't you want to be treated like a Queen?
+
+this... this thing between us won't work. even if you are genuine right now... this is something impossible.
+
+
 How trivial.
+
+
+It is my choice. It is what I choose.
+
 
 
 
@@ -64,11 +391,11 @@ Don't waste your time on guilt and shame... You are better than that. Not a mart
 You always did what you had to do.
 Nobody is perfect.
 
-Is this where you snap my neck?
+Is this the part where you, as you said, 'build me up to bring me down'?
 
 Кризалис молчит.
 
-Or you want to use me first?
+Or you want to use me first? To grant me a false hope and to see how it is whisked away?
 
 Кризалис продолжает молчать.
 
@@ -128,7 +455,7 @@ Well intentions is a lie. Even if the whole system is built on them, it is inevi
 
 compassion and benevolence alone could hold the world together and change it
 
-Twilight Sparkle was the first one to really start making sense of it all. I knew that she would lead Equestria to a new and happier era, and that she would be the one to usher in the future for ponies. My little purple alicorn was always destined to guide the ponies into an eternal autumn of happiness and progress. I just had to let her find her own way of doing so."
+Twilight Sparkle was the first one to really start making sense of it all. I knew that she would lead Equestria to a new and happier era, and that she would be the one to usher in the future for ponies. My little alicorn was always destined to guide the ponies into an eternal autumn of happiness and progress. I just had to let her find her own way of doing so."
 
 The hardest times lead to the greatest victories. Peace is stagnation. Lack of fear is death.
 
@@ -207,6 +534,35 @@ How is it madness
 How can you change the world if you follow the rules? 
 I want to be here for every step...
 How can you live for hundreds of years and not become mad? No one is supposed to live that long, after all... 
+
+
+
+Речь Целестии перед.
+Она взмахивает крылом, и облака расступаются
+
+"There's something so... tranquil about dusk, isn't there? And the sky is so beautiful... the orange tones of the sky, fading into the dark... And ponies, just like the Sun and the Moon, will always be there. It's amazing to think about. That even if the Sun or the Moon vanished tomorrow, ponies will always be there to light the night or provide the daytime glow, to spread their love and friendship and warmth to even the darkest corners of our world. The world will find its way, because ponies find a way. But the world is so vast. So immense and seemingly limitless. 
+
+Equestria is a place for everyone.
+
+Where the power is not misused in abused.
+
+exploitation, discrimination, and inequality
+
+Everyone resonate with one another, such is our nature. More si,
+https://www.youtube.com/watch?v=t6GdwET9e8k посм тут на 29 мин
+
+
+How much it changed since the days of the old empire, when I and my sister ruled together in a land of absolute harmony. How I longed to have the world in my control, to be able to fix all the problems that afflicted Equestria, to have all power at my disposal. But in the darkest of times, when my empire was crumbling all around me, I looked inside myself, and I grew strong. I discovered that the power was never mine to control, but mine to give.
+
+
+In the unknown of the dark, there are certainly bound to be boundless possibilities. The night is such a magical and mysterious time, when anything and everything can happen. And when the dark comes, it's time to let go of fears and inhibitions and let the night carry us wherever it may. After all, who knows what the darkness holds beyond fear? Maybe it's time to let the darkness take us - to embrace the unknown and welcome it with open arms. Maybe that's where the real power lies.
+
+We can't stop the changing world.
+про необходимость change
+The Dark Queen is here to stay.
+I tried to close my eyes to the necessity of change.
+If you stumble, let me be a guiding light for you. In these trying times, let me light you way.
+And maybe it wasn't what they wanted to hear, but in her heart she hoped that it is what they needed. 
 
 
 "I was happy. I was content. You took it from me."
@@ -519,7 +875,9 @@ Never.
 The breeze in your hair
 Same as in ages of old
 Time stands still for you,
-Sun and Moon are side by side.
+Sun and Moon hang side by side.
+
+I will chase you.
 
 В воздухе пахнет бедой  
 Целых две тысячи лет,  
@@ -530,6 +888,10 @@ Sun and Moon are side by side.
 Прочь от проклятой земли,  
 С небом чистым слиться -  
 Вот о чём мечтаешь ты...
+
+
+To merge with clear skies
+
 
 All you want to fly away, a free bird,  
 Unimpeded by burdens of world,  
@@ -555,7 +917,7 @@ Breaking my legs down, I'll run...
 Don't be afraid to challenge the fate  
 To reach heights like never before.  
 Fly, fly, and don't be held back.  
-Only you is capable of that.
+Only you are capable of that.
 
 Мужество есть лишь у тех,  
 Кто ощутил сердцем страх,  
@@ -1179,6 +1541,11 @@ THEY will never keep Harmony alive.
 "What, to feed you?
 
 
+Do you really want that girl to become jaded creatures like us?
+
+She would've had her own way. It needed not to repeat mine.
+
+
 "But tell me, don't you think that world [b]needs monsters?[/b]"
 
 "The world doesn't need killers, murderers and criminals."
@@ -1191,13 +1558,22 @@ Chrysalis pressed harder: "So you want to fix me? You want to force your harmony
 
 So you want to serve me?
 
-"No, not to [b]serve[/b]," she replied, indignant, "Let me do things that you won't. Let me be everything that you cannot. Let me [b]be[/b] something to be afraid of."
+"No, not to [b]serve[/b]," she replied, indignant, "Let me do things that you won't. 
+Let me be everything that you cannot. Let me [b]be[/b] something to be afraid of."
 
-The Solar Princess stared at Chrysalis for a longest time. Then uttered quietly: "Adhesion to the process and admittance of it is no different than direct participation. You seek to corrupt me, to make me like yourself. You want to prove that your point is stronger. You always was about that, about conflict, not cooperation."
+The Solar Princess stared at Chrysalis for a longest time. Then uttered quietly: "Adhesion to the process and admittance of it is no different than direct participation. You seek to corrupt me, to make me like yourself. You want to prove that your point is stronger. You always was about that, about conflict, not compromises."
+
+"I am a Queen of Equestria, am I not? Same as you."
+
+"All you want is for me to close my eyes to your atrocities," the Princess replied in strained voice, "Is that it?"
+
+
+It was full of fear, but it wanted... it wanted... it [i]wanted[/i] something new.
+
 
 "You are the only creature in the entire world I can lend my trust in," Chrysalis slowly traced a hoof on Celestia's cheek, "No, I am not same monster as I was before. Now I [b]am[/b] the Queen of Equestria, aren't I?" She cackled, "Just imagine now, a legion of trained infiltrators and shapeshifters, loyal to you... to [b]us[/b]. A dream for [b]any[/b] ruler, and I grant you it almost [b]free[/b] of charge."
 
-"All you want is for me to close my eyes to your atrocities," the Princess replied in strained voice, "Is that it?"
+
 
 "I do not require any forgiveness, not from you, not from ponies," Chrysalis pressed her forehead to Celestia's, her wolfish smile widened, "Hate me for that, if you will. I really don't care. You know what I am after... All I want is to remain myself. To be acknowledged by you." She leaned closer, "We can be so [b]powerful[/b] together..."
 

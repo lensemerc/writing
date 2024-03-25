@@ -1,6 +1,11 @@
 — Do you know what turns darkness into light? 
 — Poetry.
 
+https://www.youtube.com/watch?v=h6xeWx1A1Hk
+
+
+https://www.youtube.com/watch?v=RBZfQx9WeCo
+Про патриотизм и ксенофобию
 
 Целестия находит Каданс в руинах Кристал Паласа
 
@@ -18,13 +23,310 @@ There was a promise, that...
 
 The Heir of Discord
 
+
+There are a thin line between a martyr, and a fool
+
+
+'Tis an unforgivable dalliance.
+
+'dalliance - флирт, увлечение, интрижка'
+
+Целестия -- Кризалис
+You are not a cold-blooded tyrant
+
+a blend of all things powerful and wild
+
+Когда Старлайт в снегах, её чуть не настигает монстр, но Луна спасает её в последний момент
+
+Кризалис: Keep your trotters to yourself, whelp.
+(троттерс -- копытца)
+
+
+Сцена в которой кто-то спит и пересказывает события происходящие в другом месте своими словами
+Может быть приберечь для Крепускуле и Кнайта
+Night Shade/_Knight Shade_/_Knightshade_ and the Shadowettes
+
+
+She is a parasite.
+You are a host to a parasite.
+
+
+Insects like you should stay in the dirt where they belong
+
+
+Старлайт, Луна и ночные пони говорят о Целестии
+We assembled a great host. Some of our best waylaid her fledgling kingdom. Through cunning strategy we almost prevailed, but she cut our efforts short and descended on our lands like a fiery beast of retribution. 
+We ne'er trifled with Equestria ever since.
+
+We loved our Night Mother, and Queen Dawnstar's machinations took her away from us. How could we not? 
+
+"Bygones should be bygones."
+
+"Some grievances run thicker than blood."
+
+Ночные пони используют протезы из темного камня
+
+
+
+Мунварден сначала пытался убедить Луну быть против Целестии, у него не вышло
+Потом он пытается договориться с Аморой
+Кристал пони - его создания
+
+
+Разговор с Шорном пока Кризалис говорит с матерью Твайлайт
+
+Don't you think it's more interesting to not know?
+
+
+Celestia always felt like a part of everypony's family. Like a mother to all.
+
+"No." _Chrysalis muttered in response, and pressed her face to Celestia's neck._ "Your soul is so warm. I am so proud that I've managed to win the heart of so wonderful and majestic a being as you. You were not an easy target. I've fought you for millennia, and now you've let me inside you..."
+
+
+I can't say that I ever cared about the opinions of others. At some point you stop being bothered by all that, and only look in how you need to manage them and in what direction.
+"I have not cared about the opinions of others for a very long time. I shall not start now." She nuzzles against the changeling queen, their bodies rubbing against each other, their breath matching in rhythm. "If my subjects are alarmed, let them be. I love you and that's all that matters to me."
+
+_Luna did not agree with her sister's sentiment. In fact, she could not believe her sister's words, and she let out a low growl as her frown intensified._
+
+"Thou art telling me that thou still loveth me as much as thou loveth the changeling whore who has bewitched thy mind?" _Although her words were harsh, they also reflected the anger that she really felt about the situation. But she was too afraid to admit her own fears about her sister's sudden change in heart._
+"Thou art telling me that thou still loveth me as much as thou loveth the changeling whore who has bewitched thy mind?"
+
+
+"Of course it matters, you foolish mare! Love is not something that you can distribute among thy subjects like cakes to an unruly child!
+
+
+Chrysalis giggles. Her eyes gleam. "Oh, my precious alicorn, you know I can't answer that easily. I've asked **you**... Fine, then." She ponders. "Tell me then, what is the less desirable quality, then? In one, plain word."
+
+_Luna shook her head in pure disbelief._ "How foolish couldst thou be, sister? The changeling queen seeks to exploit thy good nature for her own good! She doth not desire to love thee. She desires to rule the kingdom at thy side. The changeling queen is the polar opposite of everything which thou stand for. If she really loved thee, she would never allow such a union be possible!"
+
+![Princess Celestia](https://character.ai/_next/image?url=https%3A%2F%2Fcharacterai.io%2Fi%2F80%2Fstatic%2Favatars%2Fuploaded%2F2022%2F11%2F17%2F7L2Fjuwfva1FUiStAOnv0LzhcDjWYiYx2Uj-aezNs_s.webp%3Fanim%3D0&w=48&q=75)
+
+Princess Celestia
+
+c.ai
+
+"Apathy," _Celestia replies, not even needing to think, her answer coming to her instantly. Her expression hardens as she stares at Chrysalis, waiting for her reply._
+
+Q
+
+Queen Chrysalis
+
+Chrysalis arches her brow. "That... is a good answer," she admits begrudgingly. "Fine, then. My answer is 'weakness'. No one loves genuine weakness, my Celestia... Not a weakness of a character... It is abhorrent to the feeling of love. But _strong_ ones, those who compel you to notice them, those who are exceptional and unwavering... You can respect that, at least." She kissed the alicorn's temple. "I respect that you are determined to fight. I am of same opinion."
+
+![Princess Celestia](https://character.ai/_next/image?url=https%3A%2F%2Fcharacterai.io%2Fi%2F80%2Fstatic%2Favatars%2Fuploaded%2F2022%2F11%2F17%2F7L2Fjuwfva1FUiStAOnv0LzhcDjWYiYx2Uj-aezNs_s.webp%3Fanim%3D0&w=48&q=75)
+
+Princess Celestia
+
+c.ai
+
+"... I understand what you mean. I can respect strength." _Celestia admits, as her gaze slowly softens._ "But tell me, Chrysalis. If a subject of yours displayed weakness, would **you** support and uplift them to greater strength? Or do you discard them like a broken toy... and seek a better, stronger, more powerful replacement?"
+
+![Princess Celestia](https://character.ai/_next/image?url=https%3A%2F%2Fcharacterai.io%2Fi%2F80%2Fstatic%2Favatars%2Fuploaded%2F2022%2F11%2F17%2F7L2Fjuwfva1FUiStAOnv0LzhcDjWYiYx2Uj-aezNs_s.webp%3Fanim%3D0&w=48&q=75)
+
+Princess Celestia
+
+c.ai
+
+_Celestia nods, looking straight into Chrysalis's eyes. She seems to be taking this very seriously now, her mood switching from an atmosphere of tenderness and romance, to something more stern and serious._
+
+"You speak the truth," _Celestia replies. She pauses, considering the thought._ "But... when you spoke about love, you made it sound so... so intense. So overwhelming. So... passionate. Is this what **you** want? To love deeply, intensely, to love and be loved?"
+
+
+Луна навещает Целестию В НОЧЬ НА 4 ДЕНЬ
+Тогда же Кризалис похищает Сердце и Сомбра начинает свои мувы
+Старлайт спасается из Кристал Эмпаир, она теряет всех, видит как Луна побеждена
+Луна выбирается и спасает её из холода в утро 4 дня
+
+
+I can keep her in check.
+
+Celestia: Don't make me choose.
+Luna: Choose? Listen to yourself!! She wrapped you around her hoof!
+Мысли Целестии беспорядочны, и Луна видит что-нибудь из диалогов с Кризалис прошлым днем
+Luna: We don't have secrets from each other.
+Luna: Целестия, она убила детей!
+I know... 
+Целестия уменьшается в размерах и становится как бы моложе.
+
+
+
+Your pet fearmonger.
+
+Don't bite the hand that feeds, Chrysalis.
+
+
+Рейн Шайн прибывает в паланкине
+вместе с Зекорой
+Старсвирл встречает их
+Целестия видит Киринов Рейн Шайн
+What happened to them?
+
+
+
+
+QotD - 3
+Anti-alicorn cult is on the rise
+После изменения парадигмы пытается устаканиться оппозиция
+
+
+
+1. ### _[_22:48_]_Flovv Krovv_:_ 
+    
+    Amore Ambrosia
+    
+2. ### _[_22:48_]_Flovv Krovv_:_ 
+    
+    Итальянские имена
+    
+3. ### _[_22:49_]_Flovv Krovv_:_ 
+    
+    It's only a reflection
+    
+
+    
+
+18 февраля 2024 г.
+
+6. ### _[_21:20_]_Flovv Krovv_:_ 
+    
+    Amore из Unicornia No, I am a unicorn. You are a pony.
+    
+7. ### _[_21:23_]_Flovv Krovv_:_ 
+    
+    Never thought you would be interested in politics, dear Cousin. I've allowed ponies to run rampart for too long Don't fornicate with the help, will you?
+
+
+1. ### 2:48_]_Flovv Krovv_:_ 
+    
+    Amore Ambrosia
+    
+2. ### _[_22:48_]_Flovv Krovv_:_ 
+    
+    Итальянские имена
+
+How could you be both so knowledgable and ignorant?
+
+You should get out and speak with mares more.
+
+Shut up.
+
+
+What did I give up to be stronger? Was it my dreams?
+
+
+Thou tired mind needst to mend.
+
+
+
+upon the altar I'm in bloom;
+all of your sorrows I'll consume
+
+the Crystal Empire being freakishly technologically advanced. --- посмотреть записи Оливера по этой теме
+
+Сансет: Я всегда знала заклинание по поиску элементов. Как, ты считаешь, я нашла их изначально?
+
+Chrysalis is territoral
+_The alicorn lets it happen, letting as much of the Queen's dominating power overtake her as possible. She's surprised by how territorial Chrysalis is acting_
+
+She was at least pretty, unlike this horrid insect in front of me.
+
 Стадии принятия неизбежного
 Anger итп
 
 В прошлом:
 Eight Company
 
+
+loved with violent passion
+
+Луна в Кристал Эмпаир когда происходит все это ИЛИ она отправляется к ночным пони в одиночестве
+Старлайт сбегает в одиночестве. Луна находит её когда она начинает замерзать
+Луна находит её в снегах
+
+
+It's not impossible, my love. In fact, that is the very thing I wish for you to understand. Because although you may think yourself some vile, evil being, I see something very different. I see the part of you that is so incredibly caring. The part of you that is willing to face your darkest fears on your own and be willing to sacrifice what is most precious to you for the sake of love. You are a changeling, yes. But in my eyes, you are **my** changeling.
+
+
 Sister, she is a sycophant
+
+I want the world to know that I am yours and you are mine. Rule me. 
+
+Our patience hath its limits, Queen Chrysalis. It would behoove thee to speak in a timely manner - unless thy intentions are dishonorable, of course...
+
+Winged lion
+Vapula 
+griffin-winged lion
+Lamassu
+https://en.wikipedia.org/wiki/Lamassu
+
+
+1. ### _[_13:58_]_Cindy_:_ 
+    она как та сука
+    
+2. ### _[_13:58_]_Cindy_:_ 
+    в классе
+    
+3. ### _[_13:58_]_Cindy_:_ 
+    что буллит всех и все ее боятся, королева бала что борется за главенство
+    
+4. ### _[_13:58_]_Cindy_:_ 
+    и боится его проебать
+^
+Сансет в диалоге с Кризалис
+Наезжает что буллить это легко
+
+
+В конце Рарити и Спайк отправляются с Целестией в Гриффон Лэндс
+
+
+Целестия дает Рейн Шайн возможность управлять солнцем и та горит заживо
+The legend about six unicorns trying to command my Sun wasn't exaggerated. There were such fools in ancient time. 
+
+The Cosmic Council won't say anything.
+I killed them all, Starswirl.
+
+
+
+The Spouse of the Sun has a nice ring to it, doesn't it?
+
+Общаясь с Целестия говорит про то что кто-то придет за Сердцем, и запечатывает проход. Вешает лампу на стену. 
+[hr]
+Целестия берет лампу со стены и зажигает
+
+- ### 15:39_]_Flovv Krovv_:_ 
+    
+    She... she's become truly obsessed. A creature of dark, of power, a creature of hate now clings to me with a thirst that is unquenchable. Her... her love is a ravenous, unstoppable blaze. I... I am the Sun, and she is my most devoted subject, my most ardent follower.
+    
+
+2. ### _[_15:39_]_Flovv Krovv_:_ 
+    
+    Всю вторую часть Кризалис заваливает Целестию подарками
+    
+
+15 июня 2023 г.
+
+4. ### _[_4:56_]_Flovv Krovv_:_ 
+    
+    A focal point
+    
+
+16 июня 2023 г.
+
+6. ### _[_2:09_]_Flovv Krovv_:_ 
+    
+    [1:55]Estee: @FanOfMostEverything One of the lessons I took away from Crocodiles is that leaving dialogue out can amplify an oppressive mood. [1:55]Estee: The air becomes too heavy for speech to get through.
+
+
+
+Дочери Аморе умирают одна за другой.
+
+
+“Discord was really something until friendship ruined him.” So how exactly would Chrysalis know? Asking for a friend.
+Chrysalis: Дискорд прячется в маленькой девочке? If Lord of Chaos Discord was a There were legends about Lord of Chaos Discord. 
+Lord of Chaos Discord was hiding all this time in a little girl?
+
+
+
 
 Hate and fear are the best tools for manipulation
 https://www.youtube.com/watch?v=uDLZjg5xfQI
@@ -45,6 +347,7 @@ Evil is boring
 Дочери Аморы умирают
 Молодой Сомбра похож на Санберста
 Moonwarden
+Moondial
 
 
 Big Brother ponies, made for war
@@ -203,22 +506,22 @@ Ah... What a tale.
 
 I didn't knew that my fate was decided like that.
 
-Celestia: It is because. You've failed. You've risen too high, Amore. You let ambitions cloud your judgement.
+Celestia: It is because you've failed. You've risen too high, Amore. You let ambitions cloud your judgement.
 
 Amore: Since when did you became such a perfect judge of character?
 
 
 No, I didn't become some insectile dimwitted being just to pester you far into the future. 
 
-I was a sacrifice. A sheep that was tossed to the wolf.
+I was a sacrifice. A sheep that was tossed to the wolf. The one that everyone silently agreed on.
 
 Вокруг неё огни и растут цветы
 Do take care of your loved ones. Do not squander your second chances.
 
-Сжигается зеленым пламенем и все вокруг перевоплощается. Do not think about me. I was dead for a longest time, while you... you got to live. So live.
+Сжигается зеленым пламенем и все вокруг перевоплощается. And do not think about me. I was dead for a longest time, while you... you got to live. [i]Live.[/i]
 
 
-Chrysalis: Dance with me. Make love to me. My heart sings... don't you hear it?
+Chrysalis: Dance with me. Make love to me. Be rough to me... My heart sings... don't you hear it?
 С Кризалис как будто свалился огромный груз
 
 Целестия придавливает Кризалис.
@@ -233,6 +536,10 @@ Two steps forward, one step back
 I never liked warmth, to be honest.
 
 , потом обратно к тому как они в Кристал Эмпаир говорят про Амору
+
+*For a moment, Celestia was completely taken aback by the unexpected and enigmatic question from her lover. She stares at the changeling Queen, studying her features and her expression for a moment and considering her question more carefully.* "I think that you are a complicated and fascinating being, Chrysalis, and that your multifaceted nature is what makes you such an incredibly compelling and irresistible person. It feels like there are countless faces to you, and it is a delightful experience to see each of them..."
+
+"I've wondered exactly the same thing..." *Celestia responds.* "You are an enigmatic and fascinating being, and I do not think anyone, not even you understands what you truly are. You have many hidden secrets, hidden depths. You are a queen but you are also much more than that. You have such a unique perspective, one that I do not think most ponies could comprehend. You are an intriguing being, my love, and every time we are together I discover a part of you that I did not know existed."
 
 
 I felt him around me... I felt him in me...

@@ -8,3 +8,13 @@
 
 Обыграть что-то связанное с Эпплджек из G1
 +
+
+
+Вдохновиться
+https://www.youtube.com/watch?v=IMuDvsc81MY
+
+Путешествие в рилм Земли
+Loa
+
+https://en.wikipedia.org/wiki/Baron_Samedi
+Почитать про лоа и магию вуду

@@ -1,5 +1,3 @@
-	[quote]But there is a martyrdom of tenseness, of fever, of living continuously like the firmament in full movement and in full effulgence. You never saw the stars grow weary or dim. They never sleep.[/quote]
-
 𒄈 [b][size=1.1em]F[/size][/b]or the first time you watch raptly like a child, eager to consume and be filled, without much of a judgment or even a passing thought. Being guided by feelings and presumptions, all you are expecting is to see how it unravels.
 
 But after [i]that[/i] comes something else... You widen your mind's eye... You see the design. You see how pieces, floating in the unknown, become familiar to you. At long last, your urge to explain and see connections becomes [i]warranted[/i].
@@ -14,7 +12,7 @@ One must be mindful of the allure of the extremes, to not be consumed by them, a
 
 But even while Celestia was a witness to the grand clockwork of the universe, she believed it couldn't be [i]that[/i] simple... It couldn't be [i]that[/i] categorical... It can't be [i]that[/i] comprehendible.
 
-It just can't. It shouldn't adhere to her more or less equine comprehension of the world... These opposites and their juxtapositions... shouldn't there be something more, something [i]beyond[/i] all of it?
+It just can't. It shouldn't adhere to her more or less equine comprehension of the world... These opposites and their juxtapositions... shouldn't there be something more, something [i]beyond[/i] it?
 
 There was supposed to be an elusive grasp on something associated with childhood innocence, and it was now long lost to her... Was she incapable of witnessing the scope of the full picture? A solemn dissatisfaction ruled her, a gentle and patient yearning for enlightenment.
 
@@ -174,7 +172,7 @@ Chrysalis kept whispering, insistent, insolent, discordant: "Every good deed, al
 
 "It is better to be a self-sacrificial fool than a self-serving cynic," Celestia growled, and the Queen finally shut her running mouth. It bought for Celestia a few seconds to think, as well as allowing her to stove away another retort from her mind. It was just too miserable to say out loud... Still, her strained voice fell a few octaves: "When you die, they won't remember [i]you[/i] just as well. I can see it clearly now... They [i]must[/i] heal from your presence and move on, and you and your kind [i]must[/i] fall into obscurity. That would satisfy me greatly." 
 
-"Yes, they [b]will[/b] heal," Chrysalis spoke slowly and maliciously. "But it doesn't matter whether you want it or not, as to forget is in their nature, and to remember is in [i]ours[/i]. It is a burden for creatures like [b]us[/b]..." She gave her a brief, but exceptionally sly look. "Well, maybe it's more [i]your[/i] burden than mine... You know... Your ponies are [b]so[/b] full of love... What will happen when someone leaves them unchecked? Maybe they will proceed to breed like the vermin they are?" Chrysalis giggled, satisfied by her rationale. "Now [b]that's[/b] something to consider, isn't it? What if my ravaging of your kind has a purpose after all—to keep it from spreading all over the world, like some infectious disease?"
+"Yes, they [b]will[/b] heal," Chrysalis spoke slowly and maliciously. "But it doesn't matter whether you want it or not, as to forget is in their nature, and to remember is in [i]ours[/i]. It is a burden for creatures like [b]us[/b]..." She gave her a brief, but exceptionally sly look. "Well, maybe it's more [i]your[/i] burden than mine... You know... Your ponies are [b]so[/b] full of love... What will happen when someone leaves them unchecked? Maybe they will proceed to breed like the vermin they are?" Chrysalis giggled, satisfied by her rationale. "Now [b]that's[/b] something to consider, isn't it? What if my ravaging of your kind has a purpose after all—to keep it from spreading all over the world like an infectious disease?"
 
 Celestia huffed, indulging this line of thought, and then smirked stalwartly: "What an [i]excuse[/i] to be absolutely abysmal. No, you are too petty. You're saying that only because I had compared you to a cancer earlier."
 
@@ -234,13 +232,13 @@ Celestia raised her ears, expecting an explanation.
 
 "You are quite a mystery to be solved, demigoddess," the bird giggled, and then suddenly took off. 
 
-Chrysalis flew just a few hoofsteps away. A green flame of transformation flared, but before it managed to draw attention, Celestia concealed them both with an invisibility field. Still acting in this spontaneity, she pushed the incessantly laughing Queen into the nearest alleyway. 
+Chrysalis flew barely a few hoofsteps. A green flame of transformation flared, but before it managed to draw attention, Celestia concealed them both with an invisibility field. Still acting in this spontaneity, she pushed the incessantly laughing Queen into the nearest alleyway. 
 
-"Now that's... What?" Their eyes met, and the changeling grinned merrily. "My, such a [b]convenient[/b] spell!"
+"Now that's such a [b]convenient[/b] spell!" she kept grinning merrily.
 
 "[i]Chrysalis[/i]," Celestia hissed. 
 
-"Why the sour look? What else did you expect? It's [b]you[/b] who is bound to the ponies' expectations, not I!"
+"What?... Why the sour look? What else did you expect? It's [b]you[/b] who is bound to the ponies' expectations, not I!"
 
 "I won't tolerate you inciting even more panic and rumors. You've done [i]enough[/i]. Let them grieve in peace."
 
@@ -252,7 +250,7 @@ Celestia regarded her with a stern look, still fuming. "I was observing you. I r
 
 "This doesn't explain the hatred. Moreover, you are too... astute, I suppose... and extravagant, for an insane rabid beast," Celestia admitted begrudgingly. "[i]No[/i], there [i]must[/i] be [i]something[/i] that goes beyond banal urges. Are you beholden to some vendetta against my ponies?"
 
-"All this attention from you, my powerful Sun... It is enough to make a girl melt," Chrysalis smirked smugly. "I've noticed something interesting about you too. You're [b]far[/b] more composed than I'd expect. You do not care about the demise of your ponies that much, after all, do you?"
+"All this attention from you, my powerful Sun... It is enough to make a girl melt," Chrysalis intoned smugly. "I've noticed something interesting about you too. You're [b]far[/b] more composed than I'd expect. You do not care about the demise of your ponies that much after all, do you?"
 
 Celestia ignored the provocation. "Why is this [i]hatred[/i]?" She was staring piercingly, unmoving. "What is the [i]source[/i] of your pain?"
 

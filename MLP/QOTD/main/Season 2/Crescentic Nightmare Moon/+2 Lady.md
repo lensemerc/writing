@@ -19,7 +19,14 @@ Yes. Yes... She is everything that I expected her to be. She is... My little sis
 
 Солнце закрыто Луной.
 
-A beautiful Sight... A beautiful Night...
+
 
 Убей её.
 I am addicted to despair.
+
+A beautiful Sight... A beautiful Night...
+
+
+
+"What are your thoughts right now, girl?" the Lady of the Thousands Mayflies 
+

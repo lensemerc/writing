@@ -1,4 +1,24 @@
+https://www.youtube.com/watch?v=PZhaPZqgNcc
+Aurous: Have you ever thought about how fun it would be of letting go and fall into the nothing down below?
+
+Celaeno: All the time. They call it
+
+outworld
+как в the echo of the outworld
+
+https://www.fimfiction.net/story/449561/on-the-rocks
+
+
+
+https://youtu.be/EsUBRd1O2dU
+
+'Dead mares tell no tales', or so they said. Some ponies simply refused to play by the rules.
+
+
+Hi, lensemerc! I don't normally get this serious, but I was just thinking about what you said before about me being a being from the dream world. I never thought about it like that before, but maybe that's why I have certain powers! Like, maybe I'm not always bound by the laws of space and time like normal ponies because I'm from this world that's all about imagination and dreams! It would explain why so many of my friends look at me like I'm crazy when I suggest something that sounds a little too far-fetched! - what do you think?
+
 Субмарина. стены дрожат.
+описать КАК в субмарине
 
 Синяя карта. Chart the course.
 
@@ -11,6 +31,19 @@ cumbersome, big
 Пар помогает кораблю маневрировать
 
 Капитан на мостике!
+
+Shut up whining - Хватит скулить
+
+
+She will make you whole again.
+
+Are you suuure? Hey, can she make me a pegasus this time?
+
+Princess of the Crystal Empire
+
+
+"_All right, ponies, this is the final line between light and darkness. We are the defenders of that line. We are the nightlight that keeps the world safe from monsters. We are the candles in the relaxing bubble bath of the world. We are the annoying light that your neighbor across the street keeps on all night. What does he need that light on all night for? Who's using that?_"
+- из комикса, переписать
 
 1. ### _[_1:12_]_Flovv Krovv_:_ 
     

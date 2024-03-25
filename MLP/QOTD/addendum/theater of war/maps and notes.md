@@ -1,4 +1,8 @@
+https://www.giss.nasa.gov/tools/gprojector/
+прожектор? посм.
+
 https://www.fimfiction.net/group/50/the-writers-group/forum?q=map
+
 
 
 https://www.deviantart.com/melongalaxy7/art/Map-of-Equestria-And-Beyond-790278917

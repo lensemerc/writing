@@ -1,24 +1,188 @@
 Princess Luna is asleep
 
-Selena
-Luna young
-Luna adult
+Selena (cosmic)
+Luna young (foal)
+Luna adult (before NMM)
 Nightmare Moon
 Luna after NMM
-Luna Crescentia
+Nova Luna Crescentia
 Luna EQG
-Selena real world (Может быть другое имя)
+Celina 'real world' (Может быть другое имя)
 
 8 лунных фаз
 
 philosophies of C S Lewis
 
 
+Shame and guilt are such infantile feelings.
+
+Sacanas вписать его и его деревья?
+
+We must fight against suffering.
+We must accept suffering and make it part of our lives.
+
+
+All eternal truths are lies. 
+
+Is this my penitence? What is this juvenile gauntlet of misery? 
+
+Moon-maiden to be granted as part of your entourage
+
+But it is a tradition
+
+"You think she doesn't understand what you are going through, but she does, oh [i]of course[/i] she does. She [i]always[/i] notices. She [i]always[/i] reads you like an open book. Remember that," Ginger urged her.
+
+"'Tis a lie," Luna demurred and turned away. "Enough of this. What I'd rather remember is that the future is what we make of it. It [i]never[/i] should've been a promise."
+
+
+
+параллель с менструацией
+кровь все дела
+
+Brothers Grimm allusions
+https://www.youtube.com/watch?v=qHrZoOeUU_8
+
+Child with silver hair on a Luna confronts NMM
+Сцена с I just wanted to be loved
+
+Сомнамбула и Пинки помогают ей под фальшивыми именами
+
+
+Celly was gone. Queen Celestia faced her now.
+"You have to let go of your innocence."
+
+You must be a special kind of fool to think about defeat before even trying.
+
+
+Луна посещает собственные похороны.
+
+Here lies the one called Nightmare Moon.
+
+The love for the Moon was one-sided.
+
+This is not true.
+
+
+Do you think that compassion can change the world alone? 
+Mayfly replied.
+
+Луна уже была известна как NMM, и Целестия знала о них
+I want to speak to you about an insurgence.
+
+Insurgence, your radiance?
+
+
+Становится маленькой Луной
+Целестия пранкует кого-то
+Buck 'em.
+When I will become Queen everyone will talk like that.
+
+
+
+
+The Moon never begs to be loved.
+
+The love for the Moon is one-sided.
+
+
+В темном лесу
+The stars aren't stars. 
+
+
+Луна Селестии:
+Ты никогда не изменишься.
+Конфронтация где Селестия пытается достучаться до сестры, но Луне нравится что Селестия пресмыкается. Ей нравится чувство силы.
+
+
+We both went down the path that led to destruction of who we were and who we loved. It felt like we would remain like that, forever, locked in a stalemate, and I hated her. I hated myself. Then...
+
+
+Of course she knows, there's no way she doesn't know.
+Don't you know that I can see through your fake concerns?
+анксайети как в боджаке
+
+
+Moon: I am your dream? I can be your nightmare as well.
+
+
+
+Сделала чучело из трупа Целестии
+
+I am better than you!
+Пинает
+In weird stains
+
+Потрошит Кризалис заживо
+
+I hate you both.
+
+
+
+Silence!
+Целестия дает пощечину Луне крылом.
+
+Луна выпрямляется, смотрет саллен
+
+You are a disgrace.
+
+
+
+
+
+Another me.
+
+
+
+Why Nightmare Moon?
+
+You know that there other side of the Moon?  
+Where the Sun doesn't shine?
+It is drenched in the primeval dark. It is always concealed.
+
+There's something living inside of me.
+That blackness.
+
+
+The Moon has its dark side.
+
+
+
 Those ponies, always wanting something.
 You decide to live for yourself, and suddenly you are the villain.
 
 
+If you can't save yourself, how can you save anyone?
+
+
 What's life if not a waste of time, dear Sister?
+
+Всаживает рог в рот одному из них и размазывает его мозги по стене
+
+Lady Lustmord
+
+You are a woman. You know that there are things in life that can't be achieved without accepting pain. That is what men do not understand, they assume that pain is something to be conquered, a beast that exists separate from us... But *no*... It is simply a part of life. Pain is our companion.
+
+Who is this?
+
+What do you thought about her dress?
+
+
+Okay, Mom.
+Mom. please. Layman terms.
+
+
+Cecilia
+
+I can't eat this.
+Достает лошадиное сердце.
+Призрак с черными провалами глаз и кровавым алым пятном на груди
+Говорит про жарку и про вину
+
+
+Церемония передачи Луны Луне
+в присутствии ночных пони
+
+ночные пони пользуются кхопешами
 
 
 Leo: I've always favored little Luna, you know it.
@@ -59,7 +223,7 @@ Immortal and pure like a newborn.
 
 Сердце в холодильнике
 Человек-Луна (Селена?) медленно нарезает его и жарит каждый день
-horse surgeon
+architector
 лошадиное сердце
 a slab of meat and muscles
 
@@ -146,9 +310,7 @@ Do not look left or I will devour you.
 Найтмар Мун смотрит на пони которые убивают друг друга
 This bores me.
 
-Now this is art.
 
-The beauty of the macabre.
 
 
 "Keeper of secrets..." The phrase echoed in her mind - it brought her back to the days of her youth, when her sister often used to refer to her as "my faithful confidant". As if lost in thought, she continued to listen intently for more words to come.
@@ -620,6 +782,7 @@ two dogs, светлая и темная
 Сансет (что-нибудь придумать) 
 из комиксов ferret
 Её зеркальное отражение на дальней стене
+сны: Пинки Пайн и Сомнамбула
 
 
 She was accustomed to being alone.
@@ -631,6 +794,7 @@ She was accustomed to being alone.
 "The Queen of the Darkness has a second smile."
 "Do you think the love is a s... ss.... sss...." (shapeshifter)
 "Quiet, pet."
+"It's only a reflection."
 
 But it would be easier here. Why not stay?
 

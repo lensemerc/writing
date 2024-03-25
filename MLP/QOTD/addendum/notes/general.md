@@ -11,8 +11,13 @@ Rejoice, since there is no Queen. Rejoice, since there is no realm. Rejoice that
 У Кристал Харта свои альтернативы в других королевстах мира Эквестрии
 Которые выполняют ту же функцию
 
+
+7:15]Tipper: "I am not alone" is a good thing to tell yourself. - QOTD I [7:15]Tipper: "You are not alone" is a good thing to be told. - QOTD II [7:15]Tipper: And "We are not alone" is a good thing to say with someone by your side. - QOTD V
+
+
 acumen -
 acumen /ăk′yə-mən, ə-kyoo͞′-/
+
 
 ### noun
 

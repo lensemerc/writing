@@ -14,6 +14,8 @@ Creatures like you are imperative to bring the balance
 
 "Everything I know, I learned from you, Princess."
 
+https://www.fimfiction.net/story/428878/1/a/a
+
 1. ### _[_21:52_]_Forcalor_:_ 
     
     do Sunset even have this kind of chemistry with anyone else?
@@ -138,3 +140,32 @@ To me she feels like the kind of person you can talk to about just about anythin
 ### 16:29_]_Tempest56_:_ 
 
 Sunset does, yes. And instantly goes nuts.
+
+
+---
+
+1. ### 4:01_]_Forcalor_:_ 
+    
+    Fanon based changeling reading of emotions and Sunset’s canon powers of empathy seem to function almost identically.
+    
+2. ### _[_4:07_]_hawthornbunny_:_ 
+    
+    Do they? I thought the changeling emotional sense was usually equated to something like smell or taste, while Sunset's power is that she touches people and sees their memories
+    
+    
+    ### _[_4:12_]_Forcalor_:_ 
+    
+    About 'seeing memories' part, I think the show tried to represent Sunset experiencing the same as her victim did.
+    
+6. @Vinylshadow
+    
+    kinda want to write a changeling that goes "of _course_ we eat food. Emotion doesn't have any nutritional value. Why on earth do you think we don't _eat_."
+    
+    
+7. ### _[_4:16_]_Forcalor_:_ 
+    
+    Like, 'oh yeah, you're _that_ kind of person, you'd do that', and then her struggling mindscape pulls her into the movie where she watches the ongoing scene for a few seconds, while in reality she experiences a momentarily 'eureka!' moment (изменено)
+    
+8. ### _[_4:19_]_Forcalor_:_ 
+    
+    You might say she _daydreams_ for a moment. yeah, that's good

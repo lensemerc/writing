@@ -1,20 +1,4 @@
-A swamp shrouded in fog,
-A wolf's howl sweeps over my tracks.
-I feel as if drunk—
-But I only drank of crystal cold water
-From a jug that you brought me,
-Seeing me off,
-To the road from which I'll never return,
-Wait or not, I'll never return...
- 
-Like a wounded beast,
-I'll silently walk over the string.
-Believe me, I am not worthy
-Of your tears over me,
-Of your trailing the tracks
-Of droplets of blood, like foxberries in the moss,
-To the gates beyond which are coldness and dark,
-You know not, only coldness and dark...
+
 
 Dwolman hearra ſæt uppan héahſetle his, cancetende.
 
@@ -47,20 +31,37 @@ mona: n; moon (weak, masculine)
 næfre: adv; never
 geat: n; gate (accusative plural of "gatu"; strong, neuter)
 
+A swamp shrouded in the fog.
+A wolf's howl sweeping over my tracks.
+I feel as if drunk—
+But I only drank crystal cold water,
+From a jug that you brought me,
+Seeing me off
+To the road from which I'll never return.
+Wait or not, I'll never return...
+ 
+Like a wounded beast,
+I'll silently walk on a string.
+Believe me, I'm not worthy
+Of your tears over me,
+Of your trailing the tracks
+Of droplets of blood that, like foxberries in the moss,
+Leading to the gates beyond which are only coldness and dark.
+You know not, there are only coldness and dark...
 
-One day you take in
+One day you'll take in
 The tart incense of the Moon.
 The knife will shift in the heart,
-The pain will arise from the depth,
-Do you wait for an embodied bane,
+The pain will arise from the depth.
+Are you waiting for an embodied bane,
 For the spirit of dusky steel,
-To let me get drunk off that water again,
+To let me get drunk off that water again?
 Off that heady crystal water, once more?
  
 And there's no closing of the ring of hoary hills,
-Only the narrow path through the blades of the rain.
+And there's only the narrow path through the blades of the rain.
 Do not search—you won't uncover the tracks,
-Which the warrior of heather left in their wake.
+Which the warrior of heather left in her wake.
 
 Sóna dōgor cymj, þu orpunge
 Súr anstór þin Mónan.

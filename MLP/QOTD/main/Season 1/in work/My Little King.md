@@ -11,8 +11,14 @@ Thorax
 
 https://www.youtube.com/watch?v=KIdTxByR8-4
 Важно чтобы читатель испытывал те же эмоции что и герой
+https://www.youtube.com/watch?v=sJcHbWLEboI
 
 a changeling seeks to rebel against own nature
+
+
+Цейнджинги становятся смертными когда они цветные
+Они стареют умирают в течение несколько лет
+Кризалис видела это множество раз
 
 
 "If I could, I'd cry your name from the highest mountains."
@@ -26,6 +32,14 @@ I was blind, and you've taught me how to see."
 
 The Mistress
 The Queen
+
+1. We will find a way 
+2. 
+3. You will grow old very quickly, feeding on each other. Your spawn will become lesser and lesser with each generation... They might become mad, deranged 
+4. 
+5. Your existence without me is a curse 
+6. 
+7. Кризалис Hovewer you run from it, Hovewer you shape it, you can't deny that you are me. You belong to me. (изменено)
 
 
 'Sundae Blush.' Her name was [i]delicious[/i]. He wanted to roll its syllables on his tongue, shape it all out, and taste everything that it had to offer. Each time he needed to say it he wanted to sing, and the invigorating cold and soothing warmth it was bringing to him was washing through his body and leaving it tingling, [i]wanting[/i], wrecked by the sweet ache of longing.

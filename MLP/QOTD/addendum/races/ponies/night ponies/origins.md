@@ -17,3 +17,9 @@ I guess she could be in-canon planning to reintroduce them into pony society, wh
 As the ponies finish setting up camp, however, they are suddenly surrounded by a large swarm of [Fly-ders](https://mlp.fandom.com/wiki/Creatures#Fly-der "Creatures")—spiders with wings. They take shelter from the swarm's bites and webs in a nearby cave. Applejack explains that the typically [Luna Bay Area](https://mlp.fandom.com/wiki/Locations#Luna_Bay "Locations")-indigenous Fly-ders were probably attracted by the camp food and that they'll have to wait until the swarm moves on, much to Apple Bloom's disappointment.
 
 Живут под Luna Bay Area, притворяются обычными пони
+
+
+Огромные подземные комплексы и пещеры в которых никто не живет
+Вдохновиться Shar из Baldur's Gate
+Небольшое количество которое выживает
+Архитекторы и рабочие

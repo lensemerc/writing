@@ -1,27 +1,25 @@
-Princess Luna wanders the dark forest
+An eternity in the cold dark. A distant surface above.
+
+𝚂𝚝𝚛𝚊𝚢 𝚕𝚒𝚐𝚑𝚝 shone defiant; the 𝚏𝚛𝚊𝚌𝚝𝚞𝚛𝚎𝚜 were glistening on ripples.
+
+Her dark wings dragged her to the depths.
+
+The rays of moonlight were piercing the calm around her.
+
+This stillness... This desire to give in... She wanted to become one with the dark... she let it in. Cold burned her insides. Fear surged; her body twisted in pain. She clutched herself and curled up, 𝚛𝚎𝚐𝚛𝚎𝚝𝚝𝚒𝚗𝚐.
 
 
-An eternity in cold dark. A distant surface above.
+There is a... [i]special[/i] kind of darkness at the bottom of the sea. A special eternal night.
 
-𝚂𝚝𝚛𝚊𝚢 𝚕𝚒𝚐𝚑𝚝 shone defiantly, the 𝚏𝚛𝚊𝚌𝚝𝚞𝚛𝚎𝚜 glistening on ripples.
-
-Her dark wings were heavy as lead. They were pulling her down.
-
-No escape. The rays of moonlight were piercing the calm around her.
-
-This stillness... This desire to give in. She wanted to become one with the dark; she let it happen. Cold burned her insides. Fear surged, the body tensed in sudden pain. She clutched herself and curled up, 𝚛𝚎𝚐𝚛𝚎𝚝𝚝𝚒𝚗𝚐.
+One that requires a special leap of faith.
 
 
+The animal was grotesque. Something bright kept falling from its obscenely long tongue, thrown over the fangs. When that something was reaching the tip of the tongue, it was colored in red.
 
-The animal was grotesque. Something bright was falling from an obscenely long tongue of it, thrown over the fangs. When it was reaching the tip of a tongue, it was becoming colored in red.
+A being with a motherly face helped to tuck her in. It embraced her and pulled close. It lifted her head and rested against the exposed soft breast. It whispered just above her ear, "When the fighting dies down and the quiet darkness comes, the bloodied Moon shines like a bright red Sun. Don't be deceived: it is a demand for a drastic change. It means that we have defiled our paradise—the very lands that surround us.
+"𝙽𝚘𝚠 𝚌𝚕𝚘𝚜𝚎 𝚢𝚘𝚞𝚛 𝚎𝚢𝚎𝚜 𝚊𝚗𝚍 you will 𝚜𝚎𝚎."
 
-A being with a motherly face was tucking her in. It embraced her and pulled close, and her head rested against the bared soft breast. A quiet whisper sounded right above her ear: "When the fighting dies down and the quiet darkness comes, the bloodied moon shines like a bright red sun. It is a demand for a drastic change. It means that we have defiled the paradise—the very land that surrounds us."
-
-Проделавший неизмеримое пространство фотон света от звезд гас на стекленевшей реснице глаза, и последним усилием, последней мыслью он подумал, что это может значить что он с звездами является одним целым
-
-"𝙽𝚘𝚠 𝚌𝚕𝚘𝚜𝚎 𝚢𝚘𝚞𝚛 𝚎𝚢𝚎𝚜 𝚊𝚗𝚍 𝚠𝚊𝚝𝚌𝚑."
-
-[center]══════════════════════════ [color=#DC143C][b]𒊹[/b][/color] ═══════════════════════════[/center]
+[u][b][center][color=#DC143C][opacity=10%]═[/opacity][opacity=15%]═[/opacity][opacity=20%]═[/opacity][opacity=25%]═[/opacity][opacity=30%]═[/opacity][opacity=35%]═[/opacity][opacity=40%]═[/opacity][opacity=45%]═[/opacity][opacity=50%]═[/opacity][opacity=55%]═[/opacity][opacity=60%]═[/opacity][opacity=65%]═[/opacity][opacity=70%]═[/opacity][opacity=75%]═[/opacity][opacity=80%]═[/opacity][opacity=85%]═[/opacity][opacity=90%]═[/opacity][opacity=95%]═[/opacity]═══════════ 𒊹 ═══════════[opacity=95%]═[/opacity][opacity=90%]═[/opacity][opacity=85%]═[/opacity][opacity=80%]═[/opacity][opacity=75%]═[/opacity][opacity=70%]═[/opacity][opacity=65%]═[/opacity][opacity=60%]═[/opacity][opacity=55%]═[/opacity][opacity=50%]═[/opacity][opacity=45%]═[/opacity][opacity=40%]═[/opacity][opacity=35%]═[/opacity][opacity=30%]═[/opacity][opacity=25%]═[/opacity][opacity=20%]═[/opacity][opacity=15%]═[/opacity][opacity=10%]═[/opacity][/center][/color] [/b][/u]
 
 [center]⠀⠀⠀There [opacity=65%][color=#DC143C][b]was[/b][/color][/opacity] a time...⠀⠀⠀
 
@@ -31,9 +29,11 @@ There was a lie that she loved to repeat to herself.
 
 That you can turn your suffering into strength.
 
-Luna looked at the bloodied, writhing, barely breathing mess. 
+Luna looked at the 
 
 𝙷𝚎𝚛 𝚜𝚎𝚗𝚜𝚎𝚜 𝚊𝚛𝚎 𝚔𝚎𝚎𝚗 𝚗𝚘𝚠. 𝙷𝚎𝚛 𝚖𝚒𝚗𝚍 𝚠𝚊𝚜 𝚌𝚕𝚎𝚊𝚛 𝚊𝚗𝚍 𝚏𝚘𝚌𝚞𝚜𝚎𝚍.
+
+
 
 
 As a tear was shed for who she was before, the Princess spread her wings and turned to face the darkness of the night, intending to take the most from who she was now.
@@ -450,6 +450,6 @@ As she was finishing this short and powerful speech, she watched as little Ginge
 
 
 
-Everything that is created is meant to break and fade away
+
 
 

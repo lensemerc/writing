@@ -7,6 +7,26 @@ Luna stares into the dark
 
 Ебаный Артес из ВК 3
 
+Somnambula связана с нею (sleepwalker)
+The Pillar of Hope, оппозинг Диспейр
+и Пинки Пай
+Пинки Пай существо из снов?
+
+What if you are a being that is native to the dream realm, and that is why you have all those strange powers? You are here to make ponies happy and represent laughter, and to bend reality a little, like a dream that comes true!
+
+Oooooh! I like that idea! I've always wanted to be a dream come true for someone, or a dream fulfilled! - like I can make all those impossible dreams come true!
+
+
+https://www.youtube.com/watch?v=be1_VYIKpFI
+
+Somnambula:
+Hope is a sweet lie that killed a lot of people.
+
+Luna:
+A misplaced hope, yes.
+
+
+
 
 Nyx
 животное вместо Тантабуса

@@ -20,6 +20,9 @@ I am aware of that being.
 There is also a twisted way.. in which you and her (Chrysalis) can be called... sisters.
 
 
+Три Дочери  Принцессы Аморы
+
+
 1. ### _[_0:38_]_Flovv Krovv_:_ 
     
     Котд 2 начинается с рассказа про Амору от Целестии, и про печать под Кристал Эмпаир Каданс догадывается что у Целестии были романтические отношения с Аморой

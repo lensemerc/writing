@@ -23,9 +23,30 @@ The Lady of Flies -- энтропия
 
 Mellow Twinklestar meets Sunny Starscout
 
+
+Сцена где кто-то казуально убивает важного персонажа
+как в беттер кал соул
+https://www.youtube.com/watch?v=mLjd-NCJuRM
+
+
 The Rat King
 
 Концептуализм против диентологии
+
+Public Universal Friend
+
+1. ### _[_2:30_]_Forcalor_:_ 
+    
+    The Society of Universal Friends should be reinstated
+    
+2. ### _[_2:31_]_Forcalor_:_ 
+    
+    adorable concept for mlp, btw (adds to the notes)
+    
+3. ### _[_2:32_]_Forcalor_:_ 
+    
+    as a swashbuckling league of adventures, that are spreading Friendship everywhere
+
 
 7:15]Tipper: "I am not alone" is a good thing to tell yourself. - QOTD I
 [7:15]Tipper: "You are not alone" is a good thing to be told. - QOTD II

@@ -103,7 +103,7 @@ Celestia's heart skipped a beat. She embraced Luna tighter, covering her with a 
 
 Luna became quiet and still as a mouse in her grasp. "Thou just cannot be serious... 'Tis all there is to it, truly?"
 
-"All of this is for your own good." Celestia breathed out and pressed Luna against her chest.
+"All of this is for your own good," Celestia breathed out and pressed Luna against her chest.
 
 "Sister..." Luna stirred in discomfort.
 
@@ -239,7 +239,7 @@ Until it was time to wake up.
 
 [center]═════════════════════════════ 𒀭𒀭𒀭 ═════════════════════════════[/center]
 
-𒄈 [b][size=1.1em]W[/size][/b]hen your every word can have a weight to it and is capable of shaping the fates of countless others, the sad reality becomes unavoidable: the truth is a malleable thing. Celestia already made arrangements to take precise control over the information regarding the incurred catastrophe, entrusting several loyal ponies to keep close attention to what might go to the press. The information and its [i]shape[/i] was like the lifeblood of this calamity, a resource that could be used either to reinforce balance or to throw the scales further into disarray.
+𒄈 [b][size=1.1em]W[/size][/b]hen your every word is capable of shaping the fates of countless others, the sad reality becomes unavoidable: the truth is a malleable thing. Celestia already made arrangements to take precise control over the information regarding the incurred catastrophe, entrusting several loyal ponies to keep close attention to what might go to the press. The information and its [i]shape[/i] was like the lifeblood of this calamity, a resource that could be used either to reinforce balance or to throw the scales further into disarray.
 
 Over a millennium of ruling Celestia had learned these lessons intimately. She had no other choice. She was the [i]keeper of secrets[/i] for a reason.
 
@@ -277,13 +277,13 @@ The work was always bringing her mind at ease.
 
 An armored pegasi barged into the study through the open window, in disregard of the protective barrier. Celestia flinched and quietly sighed, seeing that her quill had left an ink spot on the paper. Most of the other papers flew all over the floor, and Raven, with a harrowing gasp, rushed to collect them.
 
-It seemed another emergency had occurred. The Princess wasn't thrilled in the slightest. "Ah, Commander Magnus," she said, proceeding with her work. "You came just when I needed your expertise. I require your opinion on—"
+It seemed another emergency had occurred. The Princess wasn't thrilled in the slightest. "Ah, Commander Magnus," she said, proceeding with writing. "You came just when I need your expertise. I require your opinion on—"
 
 "Lady Celestia!..." Magnus exhaled, leaning into a deep bow. He was shaken to the core, and that was the most concerning. 
 
 Waiting on the pony, Celestia frowned in measured disapproval.
 
-"The statue." He said keenly. "In the sculpture garden. The [i]statue[/i] from it was destroyed."
+"The statue, in the sculpture garden,"  he said keenly. "The [i]statue[/i] from it was destroyed."
 
 The [i]statue[/i]? A momentary confusion followed, as she glanced at Raven, who was equally perplexed...
 
@@ -379,9 +379,9 @@ Celestia began from scratch once again.
 
 [quote]Luna. My crescentic Moonlight.[/quote]
 
-Luna would be very confused by everything going on with the impromptu wedding. Celestia wasn't sure how even [i]begin[/i] to explain her feelings on the matter. What tone would be the most appropriate?
+Luna would be so confused by everything related to the impromptu wedding. Celestia wasn't sure how even [i]begin[/i] to explain her feelings on the matter. What tone would be the most appropriate?
 
-Her quill hovered above the name like a pointed spear. The Princess hunched, hesitating, then stroked over it, and added something else.
+Her quill hovered above the name like a pointed spear. The Princess hesitated, then crossed it out, and added something else.
 
 [quote][s]Luna.[/s] 𝒮𝑒𝓁𝑒𝓃𝒶.[/quote]
 
@@ -511,7 +511,7 @@ Celestia bated her breath.
 
 "You stubborn, [b]stubborn[/b] mare..." Chrysalis murmured with sudden warmth.
 
-She nuzzled into the alicorn's neck. Celestia couldn't help but tense up. For these long drawn out moments, everything else fell into nonexistence—there was only the Queen and her firm grasp, her movements, each one of them measured and thorough.
+She nuzzled into the alicorn's neck, and Celestia couldn't help but tense up more. For these drawn out moments everything else fell into nonexistence—so there was only the Queen and her firm grasp, her movements, each one of them measured and thorough.
 
 "Your calmness cannot impress me," Chrysalis crowed in a perfect mixture of rough, primal savagery and tender affection. "But your subtle fragrance weaves for me another tale... Right now it is spiking with all [b]kinds[/b] of [b]flavors.[/b]" 
 

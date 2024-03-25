@@ -4,37 +4,41 @@
 
 This is my little Sister.
 
-She cannot keep up with me.
+She can't keep up with me.
 
 But she tries.
 
 She tries very hard.
 
-How careful she follows me, dark coated and diligent.
+How carefully she follows me, dark coated and diligent...
 
 She is a bit clumsy, and slow, and awkward.
 
-It is a tiny bit funny of course, and we often laugh.
+It is a tiny bit funny, and we often laugh.
 
 How seriously she is treated by others...
 
-I am always faster, always stronger than her. I have no trouble doing anything. But she always tries to protect me. It sometimes makes me sad... and other times, I want to tell her: "You do not have to prove anything."
+I am always faster, always stronger than her. I have no trouble doing anything. But she always tries to protect me. Sometimes it makes me sad... and other times I want to tell her, "You do not have to prove anything."
 
 I don't think that she hears me.
 
 She is very fragile. She worries about me. But I can take care of myself.
 
-She is small, and she gets scared very easily. When she is scared, she holds onto my mane. So when she is scared of the dark, I keep up the nightlight. When she goes to sleep, I hold her hoof. I stand between her and the darkness. 
+She is small, and she gets scared very easily. When she is scared, she holds onto my mane. So when she is scared of the dark, I keep up the nightlight. When she goes to sleep, I hold her hoof. I stand between her and the darkness.
 
-Sometimes she is annoying. Drives me mad, really. But I always come back to her. 
+Sometimes she is annoying. She drives me mad, really. But I always come back to her.
 
-We laugh and play and dream big together. One day, when she will grow up and will have adventures, I'll tell her to take care, because... she may fall, or stumble, or trip. But I will be there to pick her up from the ground and dust her off. She is my Sister. She is the best.
+We laugh, play, and dream big together. One day, when she will grow up and will have adventures, I'll tell her to take care, because... she may fall, or stumble, or trip. But I will be there to pick her up from the ground and dust her off. She is my Sister. She is the best.
 
-I wish it could always be the same. We are happy like that. We will play and dream and build wonders! I shall nurture her, help her grow, teach her all I know! I will be the light and warmth in her world, and she will be my best friend forever. I don't want it to change...
+I wish it could always be the same. We are happy like this. We will play, and dream, and build wonders! I shall nurture her, help her grow, teach her all I know! I will be the light and warmth in her world, and she will be my best friend forever. I don't want it to change...
 
 She is my little Sister...
 
-I've been told she was born from my dream.
+I've been told
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀she was born
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀from my dream.
 
 
 

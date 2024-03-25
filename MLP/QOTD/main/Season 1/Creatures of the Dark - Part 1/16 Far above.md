@@ -58,7 +58,7 @@ Visibly flustered, Chrysalis was the first to break eye contact, as if rememberi
 
 "You're so irritable. So smug." She rolled on her back and stretched, reaching with forelegs in the alicorn's direction, and then relaxed, letting her limbs flail. "So full of [b]yourself[/b], of this beauty and holiness. How do ponies even tolerate having you around? How can one look at you and do not want to twist your long, precious neck?"
 
-Celestia's eyes flashed in anger for a moment, but she quickly composed herself. "You [i]must[/i] be projecting, Chrysalis. Your insolence and blasphemy have gone on long enough. I am here to discuss the current situation in Equestria, not to be personally attacked by some spoiled brat who has nothing better to do than torment those around her."
+Celestia's eyes flashed in anger, but she quickly composed herself. "You [i]must[/i] be projecting, Chrysalis. Your insolence and blasphemy have gone on long enough. I am here to discuss the current situation in Equestria, not to be personally attacked by some spoiled brat who has nothing better to do than torment those around her."
 
 Chrysalis was enjoying this greatly. "A [i]spoiled brat[/i], am I?" Her voice dropped to a creeping, quiet malicious whisper, "What's wrong with chasing your dreams, Celestia? And I'm being serious—what's [b][i]wrong[/i][/b] with that? What's wrong with having desires and ambitions? So what if I need to break decorum, and a few [b]necks[/b] along the way?"
 

@@ -15,6 +15,9 @@ This city was gray. If you scrape out all color from it.
 Not outwardly. Its soul was.
 
 
+Константин из фильма Константин посм.
+
+
 "So just like that?"
 Герой умирает в конце, так ничего и не узнав
 

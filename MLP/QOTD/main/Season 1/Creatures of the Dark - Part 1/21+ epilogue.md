@@ -27,4 +27,4 @@ I am needed elsewhere... I have subjects that need to be tended to.
 Переписать более ветиевато
 "I am in fear," Luna said bitterly. She looked at Starlight askance, but searching: "Do you feel it as well?"
 
-"I am afraid," Luna said plainly and bitterly. "Are you?"
+"I am afraid," Luna said plainly and bitterly. "Don't you?"
